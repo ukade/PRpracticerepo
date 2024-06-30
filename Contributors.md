@@ -15,6 +15,7 @@ Rasika Baskaran (◕‿◕)
 Philip Tasabia :O
 Zachary Robertson :)
 Antony Thomas :o
+Guru Updesh Singh :p
 Steven Cai
 Yat Tung Ho (•⚗৺⚗•)
 Juan Pablo Duque Ochoa :D
