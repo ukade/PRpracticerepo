@@ -10,6 +10,7 @@ Matthew O'Malley-Nichols <_<
 Lydia Fares :D
 Kippen Lee (╯°□°）╯︵ ┻━┻ 
 Jonathan Toussaint ;-)
+Bryan Caples ᕕ(⌐■_■)ᕗ ♪♬
 Monica Zhang
 Rasika Baskaran (◕‿◕)
 Philip Tasabia :O
@@ -19,4 +20,3 @@ Steven Cai
 Yat Tung Ho (•⚗৺⚗•)
 Juan Pablo Duque Ochoa :D
 Kyle Pfiuster 😊
-Bryan Caples ᕕ(⌐■_■)ᕗ ♪♬
