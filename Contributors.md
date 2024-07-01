@@ -23,4 +23,5 @@ Steven Cai
 Yat Tung Ho (•⚗৺⚗•)
 Juan Pablo Duque Ochoa :D
 Kyle Pfiuster 😊
+Reina Takahara <3
 Pavlo Havrylyuk
