@@ -25,6 +25,7 @@ Lauren Scacco ✿
 Yat Tung Ho (•⚗৺⚗•)
 Juan Pablo Duque Ochoa :D
 Kyle Pfiuster 😊
+Gabriele Narmontaite ┬─┬ ノ( ゜-゜ノ)
 Chase Gomez (⌐■_■)
 Abhram Medina
 Reina Takahara <3
