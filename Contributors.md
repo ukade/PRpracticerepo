@@ -17,5 +17,6 @@ Zachary Robertson :)
 Antony Thomas :o
 Steven Cai
 Yat Tung Ho (•⚗৺⚗•)
+Kerry James Poulson
 Juan Pablo Duque Ochoa :D
 Kyle Pfiuster 😊
