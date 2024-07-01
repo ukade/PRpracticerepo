@@ -19,3 +19,4 @@ Steven Cai
 Yat Tung Ho (•⚗৺⚗•)
 Juan Pablo Duque Ochoa :D
 Kyle Pfiuster 😊
+Chase Gomez (⌐■_■)
