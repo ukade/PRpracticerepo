@@ -7,16 +7,21 @@ Liam Pestrella :)
 Jawad Abdullah ( ˘︹˘ )
 Colin Cheng ^_^
 Matthew O'Malley-Nichols <_<
+Daniel Fontenot ┐(‘～`;)┌
 Lydia Fares :D
 Kippen Lee (╯°□°）╯︵ ┻━┻ 
 Jonathan Toussaint ;-)
+Bryan Caples ᕕ(⌐■_■)ᕗ ♪♬
 Monica Zhang
 Rasika Baskaran (◕‿◕)
 Philip Tasabia :O
+Nishanth Dass @( * O * )@
 Zachary Robertson :)
 Antony Thomas :o
+Guru Updesh Singh :p
 Steven Cai
 Yat Tung Ho (•⚗৺⚗•)
 Juan Pablo Duque Ochoa :D
 Kyle Pfiuster 😊
 Reina Takahara <3
+Pavlo Havrylyuk
