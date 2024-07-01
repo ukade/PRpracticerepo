@@ -18,6 +18,7 @@ Rasika Baskaran (◕‿◕)
 Philip Tasabia :O
 Nishanth Dass @( * O * )@
 Zachary Robertson :)
+Alexander Simon XD
 Antony Thomas :o
 Guru Updesh Singh :p
 Steven Cai
