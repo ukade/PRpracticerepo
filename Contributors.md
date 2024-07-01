@@ -3,6 +3,7 @@ Janita Aamir ʕ •ᴥ•ʔ
 Aniket Poojari ʕ•|•ʔ
 Steven Wallace ¯\_(ツ)_/¯ 
 Steven Schaerer ><>
+Trevor Phillips °º¤ø,¸¸,ø¤º°`°º¤ø,¸,ø¤°º¤ø,¸¸,ø¤º°`°º¤ø,¸
 Liam Pestrella :)
 Jawad Abdullah ( ˘︹˘ )
 Colin Cheng ^_^
