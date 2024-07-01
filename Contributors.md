@@ -14,6 +14,7 @@ Monica Zhang
 Rasika Baskaran (◕‿◕)
 Philip Tasabia :O
 Zachary Robertson :)
+Alexander Simon XD
 Antony Thomas :o
 Steven Cai
 Yat Tung Ho (•⚗৺⚗•)
