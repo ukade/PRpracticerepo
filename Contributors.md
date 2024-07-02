@@ -29,6 +29,7 @@ Samuel Hoover 🔮
 Benjamin Singeltary 👻
 Guru Updesh Singh :p
 Steven Cai
+Tevin Voong
 Rachel Spears ╰(*°▽°*)╯
 Lauren Scacco ✿
 Nicole Bogart
