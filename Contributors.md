@@ -32,6 +32,7 @@ Kyle Pfiuster 😊
 Robin Yi :)
 Ashley Kim :D
 Hrishikash Kadakia :)
+Tichakorn Taekratok 🙏
 Chung-yu Yang ρ(・ω・、)
 Sean Siders 🫠
 Cat Randquist =^.^=
