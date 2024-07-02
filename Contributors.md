@@ -48,6 +48,7 @@ Chase Gomez (⌐■_■)
 Abhram Medina
 Reina Takahara <3
 Pavlo Havrylyuk
+Daniel Dalinda XD
 Hisami Scott :)
 Virgilio Viernes ಠ_ಠ
 Sylve Baum U・ﻌ・U
