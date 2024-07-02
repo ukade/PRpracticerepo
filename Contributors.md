@@ -1,5 +1,6 @@
 Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
+Jacob Springer :)
 Aniket Poojari ʕ•|•ʔ
 Steven Wallace ¯\_(ツ)_/¯ 
 Steven Schaerer ><>
@@ -14,7 +15,9 @@ Kippen Lee (╯°□°）╯︵ ┻━┻
 Jonathan Toussaint ;-)
 Bryan Caples ᕕ(⌐■_■)ᕗ ♪♬
 Monica Zhang
+Gabriel Mortensen
 Milton Huynh 😎
+Andrew Cearlock
 Rasika Baskaran (◕‿◕)
 Philip Tasabia :O
 Nishanth Dass @( * O * )@
@@ -26,6 +29,7 @@ Benjamin Singeltary 👻
 Guru Updesh Singh :p
 Steven Cai
 Lauren Scacco ✿
+Nicole Bogart
 Yat Tung Ho (•⚗৺⚗•)
 Kerry James Poulson
 Juan Pablo Duque Ochoa :D
@@ -41,3 +45,6 @@ Chase Gomez (⌐■_■)
 Abhram Medina
 Reina Takahara <3
 Pavlo Havrylyuk
+Nathan Swaim
+Trevor Dunn 🦖
+Lucas Cannon  😱🙀
