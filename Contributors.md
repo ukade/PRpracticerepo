@@ -11,6 +11,7 @@ Matthew O'Malley-Nichols <_<
 Daniel Fontenot ┐(‘～`;)┌
 Lydia Fares :D
 Kippen Lee (╯°□°）╯︵ ┻━┻ 
+Michael Hunter 🍕
 Jonathan Toussaint ;-)
 Bryan Caples ᕕ(⌐■_■)ᕗ ♪♬
 Monica Zhang
