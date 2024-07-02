@@ -40,3 +40,4 @@ Chase Gomez (⌐■_■)
 Abhram Medina
 Reina Takahara <3
 Pavlo Havrylyuk
+Sylve Baum U・ﻌ・U
