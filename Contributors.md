@@ -24,6 +24,7 @@ Nishanth Dass @( * O * )@
 Zachary Robertson :)
 Alexander Simon XD
 Antony Thomas :o
+Samuel Hoover 🔮
 Benjamin Singeltary 👻
 Guru Updesh Singh :p
 Steven Cai
