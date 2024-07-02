@@ -43,5 +43,6 @@ Chase Gomez (⌐■_■)
 Abhram Medina
 Reina Takahara <3
 Pavlo Havrylyuk
+Nathan Swaim
 Trevor Dunn 🦖
 Lucas Cannon  😱🙀
