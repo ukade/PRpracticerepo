@@ -80,6 +80,7 @@ Jaclyn Rutter :-D
 Trevor Dunn 🦖
 Ashley Quarford :P
 Lucas Cannon  😱🙀
+Daniel Helm ¯\_(ツ)_/¯
 Dillon Baldwin
 Brielle Choquer ¯\_(ツ)_/¯   
 Artemiy Arzumanov :P
