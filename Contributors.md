@@ -19,6 +19,7 @@ Monica Zhang
 Gabriel Mortensen
 Milton Huynh 😎
 Andrew Cearlock
+Mackenzie Paradeis
 Rasika Baskaran (◕‿◕)
 Philip Tasabia :O
 Nishanth Dass @( * O * )@
