@@ -19,6 +19,7 @@ Monica Zhang
 Gabriel Mortensen
 Milton Huynh 😎
 Andrew Cearlock
+Mackenzie Paradeis
 Rasika Baskaran (◕‿◕)
 Philip Tasabia :O
 Nishanth Dass @( _ O _ )@
@@ -30,6 +31,7 @@ Samuel Hoover 🔮
 Benjamin Singeltary 👻
 Guru Updesh Singh :p
 Steven Cai
+Jerome Cagado 
 Tevin Voong
 Rachel Spears ╰(*°▽°*)╯
 Lauren Scacco ✿
@@ -48,6 +50,8 @@ Tichakorn Taekratok 🙏
 Chung-yu Yang ρ(・ω・、)
 Sean Siders 🫠
 Josh Tan :D
+Abdulrahman Samargandi <|:)
+Myles Scholz 🦎
 Cat Randquist =^.^=
 Gabriele Narmontaite ┬─┬ ノ( ゜-゜ノ)
 Chase Gomez (⌐■*■)
@@ -62,6 +66,7 @@ Grant Towers @(^*^)@
 Amadou Diallo
 Efe Torunoglu :D
 Robert Brumleve :P
+Ngoc-Thao Ly :1
 Daniel Dalinda XD
 Hisami Scott :)
 Virgilio Viernes ಠ*ಠ
@@ -69,4 +74,17 @@ Sylve Baum U・ﻌ・U
 Nathan Swaim
 Trevor Dunn 🦖
 Ashley Quarford :P
-Lucas Cannon 😱🙀
+Lucas Cannon  😱🙀
+Maxwell Bauer 👨‍💻
+Umut Altindere 👒⚔🏴☠️🌊
+Andrew Adisoemarta T_T
+Phil Santich
+Arturo Martinez  \m/ >_< \m/
+Jackson Van Dyke 🍞
+John Tran 🐈‍⬛
+Brittany Healey (≧◡≦)
+Matthew Stagg ¯\_(ツ)_/¯
+Samuel Davidson
+Lawrence Kim
+Chris Hall 💀
+Devin Daniels 😼
