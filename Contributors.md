@@ -8,13 +8,13 @@ Trevor Phillips °º¤ø,¸¸,ø¤º°`°º¤ø,¸,ø¤°º¤ø,¸¸,ø¤º°`°
 Liam Pestrella :)
 Jawad Abdullah ( ˘︹˘ )
 Colin Cheng ^_^
-Matthew O'Malley-Nichols <_<
+Matthew O'Malley-Nichols <*<
 Daniel Fontenot ┐(‘～`;)┌
 Lydia Fares :D
 Kippen Lee (╯°□°）╯︵ ┻━┻
 Michael Hunter 🍕
 Jonathan Toussaint ;-)
-Bryan Caples ᕕ(⌐■_■)ᕗ ♪♬
+Bryan Caples ᕕ(⌐■*■)ᕗ ♪♬
 Monica Zhang
 Gabriel Mortensen
 Milton Huynh 😎
@@ -22,8 +22,8 @@ Andrew Cearlock
 Mackenzie Paradeis
 Rasika Baskaran (◕‿◕)
 Philip Tasabia :O
-Nishanth Dass @( * O * )@
-Noah Zajicek -_-
+Nishanth Dass @( _ O _ )@
+Noah Zajicek -*-
 Zachary Robertson :)
 Alexander Simon XD
 Antony Thomas :o
@@ -54,7 +54,7 @@ Abdulrahman Samargandi <|:)
 Myles Scholz 🦎
 Cat Randquist =^.^=
 Gabriele Narmontaite ┬─┬ ノ( ゜-゜ノ)
-Chase Gomez (⌐■_■)
+Chase Gomez (⌐■*■)
 Abhram Medina
 Reina Takahara <3
 Pavlo Havrylyuk
@@ -62,17 +62,18 @@ Jacob Vilevac (-.-)Zzz...
 flowejam
 Preston Sellers <(-.-)>
 Damiant Chauhan :)
-Grant Towers @(^_^)@
+Grant Towers @(^*^)@
 Amadou Diallo
 Efe Torunoglu :D
 Robert Brumleve :P
 Ngoc-Thao Ly :1
 Daniel Dalinda XD
 Hisami Scott :)
-Virgilio Viernes ಠ_ಠ
+Virgilio Viernes ಠ*ಠ
 Sylve Baum U・ﻌ・U
 Nathan Swaim
 Trevor Dunn 🦖
+Ashley Quarford :P
 Lucas Cannon  😱🙀
 Maxwell Bauer 👨‍💻
 Umut Altindere 👒⚔🏴☠️🌊
