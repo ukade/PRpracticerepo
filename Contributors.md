@@ -72,6 +72,7 @@ Sylve Baum U・ﻌ・U
 Nathan Swaim
 Trevor Dunn 🦖
 Lucas Cannon  😱🙀
+Andrew Adisoemarta T_T
 Phil Santich
 Arturo Martinez  \m/ >_< \m/
 Jackson Van Dyke 🍞
