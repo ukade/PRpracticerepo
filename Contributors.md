@@ -23,8 +23,9 @@ James Carmona ( ͡° ͜ʖ ͡°)
 Mackenzie Paradeis
 Rasika Baskaran (◕‿◕)
 Philip Tasabia :O
-Nishanth Dass @( _ O _ )@
-Noah Zajicek -*-
+Sativa Maciel (^-^)
+Nishanth Dass @( * O * )@
+Noah Zajicek -_-
 Zachary Robertson :)
 Alexander Simon XD
 Antony Thomas :o
