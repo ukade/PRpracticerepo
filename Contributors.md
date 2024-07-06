@@ -2,7 +2,7 @@ Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
 Jacob Springer :)
 Aniket Poojari ʕ•|•ʔ
-Steven Wallace ¯\_(ツ)_/¯ 
+Steven Wallace ¯\_(ツ)_/¯
 Steven Schaerer ><>
 Trevor Phillips °º¤ø,¸¸,ø¤º°`°º¤ø,¸,ø¤°º¤ø,¸¸,ø¤º°`°º¤ø,¸
 Liam Pestrella :)
@@ -11,7 +11,7 @@ Colin Cheng ^_^
 Matthew O'Malley-Nichols <_<
 Daniel Fontenot ┐(‘～`;)┌
 Lydia Fares :D
-Kippen Lee (╯°□°）╯︵ ┻━┻ 
+Kippen Lee (╯°□°）╯︵ ┻━┻
 Michael Hunter 🍕
 Jonathan Toussaint ;-)
 Bryan Caples ᕕ(⌐■_■)ᕗ ♪♬
@@ -70,3 +70,5 @@ Sylve Baum U・ﻌ・U
 Nathan Swaim
 Trevor Dunn 🦖
 Lucas Cannon  😱🙀
+
+Devin Daniels 😼
