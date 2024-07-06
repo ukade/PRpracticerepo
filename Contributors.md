@@ -72,6 +72,7 @@ Sylve Baum U・ﻌ・U
 Nathan Swaim
 Trevor Dunn 🦖
 Lucas Cannon  😱🙀
+Samuel Davidson
 Lawrence Kim
 Chris Hall 💀
 Devin Daniels 😼
