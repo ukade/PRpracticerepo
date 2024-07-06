@@ -78,6 +78,7 @@ Jaclyn Rutter :-D
 Trevor Dunn 🦖
 Ashley Quarford :P
 Lucas Cannon  😱🙀
+Artemiy Arzumanov :P
 Aljosa Pantovich :)
 Christian Tramill *.*
 Ashton Stasko 🦇
