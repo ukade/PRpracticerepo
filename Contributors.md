@@ -2,27 +2,28 @@ Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
 Jacob Springer :)
 Aniket Poojari ʕ•|•ʔ
-Steven Wallace ¯\_(ツ)_/¯ 
+Steven Wallace ¯\_(ツ)_/¯
 Steven Schaerer ><>
 Trevor Phillips °º¤ø,¸¸,ø¤º°`°º¤ø,¸,ø¤°º¤ø,¸¸,ø¤º°`°º¤ø,¸
 Liam Pestrella :)
 Jawad Abdullah ( ˘︹˘ )
 Colin Cheng ^_^
-Matthew O'Malley-Nichols <_<
+Matthew O'Malley-Nichols <*<
 Daniel Fontenot ┐(‘～`;)┌
 Lydia Fares :D
-Kippen Lee (╯°□°）╯︵ ┻━┻ 
+Kippen Lee (╯°□°）╯︵ ┻━┻
 Michael Hunter 🍕
 Jonathan Toussaint ;-)
-Bryan Caples ᕕ(⌐■_■)ᕗ ♪♬
+Bryan Caples ᕕ(⌐■*■)ᕗ ♪♬
 Monica Zhang
 Gabriel Mortensen
 Milton Huynh 😎
 Andrew Cearlock
+Mackenzie Paradeis
 Rasika Baskaran (◕‿◕)
 Philip Tasabia :O
-Nishanth Dass @( * O * )@
-Noah Zajicek -_-
+Nishanth Dass @( _ O _ )@
+Noah Zajicek -*-
 Zachary Robertson :)
 Alexander Simon XD
 Antony Thomas :o
@@ -30,6 +31,7 @@ Samuel Hoover 🔮
 Benjamin Singeltary 👻
 Guru Updesh Singh :p
 Steven Cai
+Jerome Cagado 
 Tevin Voong
 Rachel Spears ╰(*°▽°*)╯
 Lauren Scacco ✿
@@ -48,9 +50,11 @@ Tichakorn Taekratok 🙏
 Chung-yu Yang ρ(・ω・、)
 Sean Siders 🫠
 Josh Tan :D
+Abdulrahman Samargandi <|:)
+Myles Scholz 🦎
 Cat Randquist =^.^=
 Gabriele Narmontaite ┬─┬ ノ( ゜-゜ノ)
-Chase Gomez (⌐■_■)
+Chase Gomez (⌐■*■)
 Abhram Medina
 Reina Takahara <3
 Pavlo Havrylyuk
@@ -58,15 +62,34 @@ Jacob Vilevac (-.-)Zzz...
 flowejam
 Preston Sellers <(-.-)>
 Damiant Chauhan :)
-Grant Towers @(^_^)@
+Grant Towers @(^*^)@
 Amadou Diallo
 Efe Torunoglu :D
 Robert Brumleve :P
+Ngoc-Thao Ly :1
 Daniel Dalinda XD
 Hisami Scott :)
-Virgilio Viernes ಠ_ಠ
+Virgilio Viernes ಠ*ಠ
 Sylve Baum U・ﻌ・U
 Nathan Swaim
+Jaclyn Rutter :-D
 Trevor Dunn 🦖
+Ashley Quarford :P
 Lucas Cannon  😱🙀
 Ashton Stasko 🦇
+Alejandro Grau ( ಠ ͜ʖ ರೃ)
+Cameron Alsbrook ༼ つ ◕_◕ ༽つ
+Dylan Varga 🂾
+Maxwell Bauer 👨‍💻
+Umut Altindere 👒⚔🏴☠️🌊
+Andrew Adisoemarta T_T
+Phil Santich
+Arturo Martinez  \m/ >_< \m/
+Jackson Van Dyke 🍞
+John Tran 🐈‍⬛
+Brittany Healey (≧◡≦)
+Matthew Stagg ¯\_(ツ)_/¯
+Samuel Davidson
+Lawrence Kim
+Chris Hall 💀
+Devin Daniels 😼
