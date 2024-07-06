@@ -72,6 +72,7 @@ Sylve Baum U・ﻌ・U
 Nathan Swaim
 Trevor Dunn 🦖
 Lucas Cannon  😱🙀
+John Tran 🐈‍⬛
 Brittany Healey (≧◡≦)
 Matthew Stagg ¯\_(ツ)_/¯
 Samuel Davidson
