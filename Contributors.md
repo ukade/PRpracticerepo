@@ -73,6 +73,7 @@ Sylve Baum U・ﻌ・U
 Nathan Swaim
 Trevor Dunn 🦖
 Lucas Cannon  😱🙀
+Maxwell Bauer 👨‍💻
 Umut Altindere 👒⚔🏴☠️🌊
 Andrew Adisoemarta T_T
 Phil Santich
