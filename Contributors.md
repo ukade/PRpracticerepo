@@ -72,6 +72,7 @@ Hisami Scott :)
 Virgilio Viernes ಠ*ಠ
 Sylve Baum U・ﻌ・U
 Nathan Swaim
+Jaclyn Rutter :-D
 Trevor Dunn 🦖
 Ashley Quarford :P
 Lucas Cannon  😱🙀
