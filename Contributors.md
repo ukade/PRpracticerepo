@@ -19,6 +19,7 @@ Monica Zhang
 Gabriel Mortensen
 Milton Huynh 😎
 Andrew Cearlock
+James Carmona ( ͡° ͜ʖ ͡°)
 Mackenzie Paradeis
 Rasika Baskaran (◕‿◕)
 Philip Tasabia :O
