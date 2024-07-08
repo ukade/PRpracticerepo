@@ -84,6 +84,7 @@ Jaclyn Rutter :-D
 Trevor Dunn 🦖
 Ashley Quarford :P
 Lucas Cannon  😱🙀
+Jesse Chang 👀
 Walt Bringenberg :)
 Jaron Moore 😎
 Jose Meza
