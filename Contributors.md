@@ -83,6 +83,7 @@ Jaclyn Rutter :-D
 Trevor Dunn 🦖
 Ashley Quarford :P
 Lucas Cannon  😱🙀
+Michael Lagardera ✊🦾
 Sahil Gaikwad /ᐠ｡‸｡ᐟ\
 Daniel Helm ¯\_(ツ)_/¯
 Dillon Baldwin
