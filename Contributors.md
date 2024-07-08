@@ -29,6 +29,7 @@ Noah Zajicek -_-
 Zachary Robertson :)
 Alexander Simon XD
 Antony Thomas :o
+Kristin Towns XD :)
 Samuel Hoover 🔮
 Benjamin Singeltary 👻
 Guru Updesh Singh :p
