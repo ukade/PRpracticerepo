@@ -87,6 +87,7 @@ Jaclyn Rutter :-D
 Trevor Dunn 🦖
 Ashley Quarford :P
 Lucas Cannon  😱🙀
+Sebastian Torresola :)
 Joonhyung Kang
 Hana Alizai 😊
 Tyler Harwood 👀
