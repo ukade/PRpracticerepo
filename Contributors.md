@@ -40,6 +40,7 @@ Lauren Scacco ✿
 Nicole Bogart
 Yat Tung Ho (•⚗৺⚗•)
 Kerry James Poulson
+Wyatt Arnsdorf \_(ಠ_ಠ)_/
 Lorraine Byrne
 Juan Pablo Duque Ochoa :D
 Kyle Pfiuster 😊
