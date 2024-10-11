@@ -1,4 +1,3 @@
-Devin Fahnestock 🫠
 Hayden Burgess ⊙▂⊙
 Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
@@ -60,6 +59,7 @@ Sean Siders 🫠
 Maren Cole 🐎
 Josh Tan :D
 Brynn DeVaan :v)
+Wesley Alejandro :3
 Abdulrahman Samargandi <|:)
 Myles Scholz 🦎
 Cat Randquist =^.^=
