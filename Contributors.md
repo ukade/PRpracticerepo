@@ -1,3 +1,4 @@
+Devin Fahnestock 🫠
 Hayden Burgess ⊙▂⊙
 Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
@@ -111,7 +112,8 @@ Sahil Gaikwad /ᐠ｡‸｡ᐟ\
 Daniel Helm ¯\_(ツ)_/¯
 Dillon Baldwin
 Suyash Sreekumar ^_^
-Brielle Choquer ¯\_(ツ)_/¯   
+Brielle Choquer ¯\_(ツ)_/¯  
+Ira Belyaeva =^.^= 
 Artemiy Arzumanov :P
 Aljosa Pantovich :)
 Christian Tramill *.*
@@ -130,6 +132,7 @@ Brittany Healey (≧◡≦)
 Matthew Stagg ¯\_(ツ)_/¯
 Samuel Davidson
 Lawrence Kim
+Marques Mar 🤣
 Chris Hall 💀
 Devin Daniels 😼
 Gemini Kaushik <3 
