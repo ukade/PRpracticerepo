@@ -1,3 +1,4 @@
+Devin Fahnestock 🫠
 Hayden Burgess ⊙▂⊙
 Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
@@ -59,6 +60,7 @@ Sean Siders 🫠
 Maren Cole 🐎
 Josh Tan :D
 Brynn DeVaan :v)
+Wesley Alejandro :3
 Abdulrahman Samargandi <|:)
 Myles Scholz 🦎
 Cat Randquist =^.^=
@@ -96,12 +98,12 @@ Modio Thiam
 Praj Iyer
 Paola Cernada ❤️
 Sebastian Torresola :)
+Aubrey Floyd 🤷🏻‍♀️
 Joonhyung Kang
 Hana Alizai 😊
 Tyler Harwood 👀
 Atlee Hlainka 🌎
 Jesse Chang 👀
-Marques Mar 🤣
 Walt Bringenberg :)
 Jaron Moore 😎
 Jose Meza
@@ -110,7 +112,8 @@ Sahil Gaikwad /ᐠ｡‸｡ᐟ\
 Daniel Helm ¯\_(ツ)_/¯
 Dillon Baldwin
 Suyash Sreekumar ^_^
-Brielle Choquer ¯\_(ツ)_/¯   
+Brielle Choquer ¯\_(ツ)_/¯  
+Ira Belyaeva =^.^= 
 Artemiy Arzumanov :P
 Aljosa Pantovich :)
 Christian Tramill *.*
@@ -135,3 +138,5 @@ Devin Daniels 😼
 Gemini Kaushik <3 
 Elliot Foley XDD
 Quyen Nguyen OwO
+Cheyenne Plutchak ^__^
+Freddie Main III
