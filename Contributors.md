@@ -101,6 +101,7 @@ Hana Alizai 😊
 Tyler Harwood 👀
 Atlee Hlainka 🌎
 Jesse Chang 👀
+Marques Mar 🤣
 Walt Bringenberg :)
 Jaron Moore 😎
 Jose Meza
@@ -128,6 +129,7 @@ Brittany Healey (≧◡≦)
 Matthew Stagg ¯\_(ツ)_/¯
 Samuel Davidson
 Lawrence Kim
+Marques Mar 🤣
 Chris Hall 💀
 Devin Daniels 😼
 Gemini Kaushik <3 
