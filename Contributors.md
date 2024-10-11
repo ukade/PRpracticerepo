@@ -110,8 +110,7 @@ Sahil Gaikwad /ᐠ｡‸｡ᐟ\
 Daniel Helm ¯\_(ツ)_/¯
 Dillon Baldwin
 Suyash Sreekumar ^_^
-Brielle Choquer ¯\_(ツ)_/¯ 
-Ira Belyaeva =^.^=  
+Brielle Choquer ¯\_(ツ)_/¯   
 Artemiy Arzumanov :P
 Aljosa Pantovich :)
 Christian Tramill *.*
@@ -136,3 +135,4 @@ Gemini Kaushik <3
 Elliot Foley XDD
 Quyen Nguyen OwO
 Cheyenne Plutchak ^__^
+Freddie Main III
