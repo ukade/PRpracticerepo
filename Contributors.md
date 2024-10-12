@@ -77,6 +77,7 @@ Ian Flynn 👻
 Preston Sellers <(-.-)>
 Damiant Chauhan :)
 Noddy Ho Ching Lam
+Jonah Gates <(^-^)>
 Christina Boyce :)
 Grant Towers @(^_^)@
 Amadou Diallo
