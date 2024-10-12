@@ -131,6 +131,7 @@ Arturo Martinez  \m/ >_< \m/
 Jackson Van Dyke 🍞
 John Tran 🐈‍⬛
 Brittany Healey (≧◡≦)
+James Bray 🤗
 Matthew Stagg ¯\_(ツ)_/¯
 Samuel Davidson
 Lawrence Kim
