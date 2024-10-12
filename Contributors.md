@@ -96,6 +96,7 @@ Ashley Quarford :P
 Lucas Cannon  😱🙀
 Modio Thiam
 Praj Iyer
+Brett Somero
 Paola Cernada ❤️
 Sebastian Torresola :)
 Aubrey Floyd 🤷🏻‍♀️
