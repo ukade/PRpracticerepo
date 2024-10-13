@@ -144,4 +144,4 @@ Cheyenne Plutchak ^__^
 Haedon Kaufman 🍕
 Freddie Main III
 Velislav Babatchev 🤖
-Katherine Worms 🤪
+Katherine Worms 🥲
