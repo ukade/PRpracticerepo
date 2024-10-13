@@ -18,6 +18,7 @@ Michael Hunter 🍕
 Jonathan Toussaint ;-)
 Bryan Caples ᕕ(⌐■*■)ᕗ ♪♬
 Monica Zhang
+Jared Norris 🤠
 Gabriel Mortensen
 Milton Huynh 😎
 Christopher Buss
