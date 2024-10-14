@@ -18,6 +18,7 @@ Lydia Fares :D
 Kippen Lee (╯°□°）╯︵ ┻━┻
 Michael Hunter 🍕
 Jonathan Toussaint ;-)
+Julie Thurmes :P
 Bryan Caples ᕕ(⌐■*■)ᕗ ♪♬
 Monica Zhang
 Jared Norris 🤠
