@@ -1,7 +1,9 @@
+Teresita Nader ^-^
 Devin Fahnestock 🫠
 Hayden Burgess ⊙▂⊙
 Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
+Tatiana Cherne 🦋
 Jacob Springer :)
 Aniket Poojari ʕ•|•ʔ
 Steven Wallace ¯\_(ツ)_/¯
@@ -77,6 +79,7 @@ Ian Flynn 👻
 Preston Sellers <(-.-)>
 Damiant Chauhan :)
 Noddy Ho Ching Lam
+Jonah Gates <(^-^)>
 Christina Boyce :)
 Grant Towers @(^_^)@
 Amadou Diallo
@@ -88,6 +91,7 @@ Ngoc-Thao Ly :1
 Daniel Dalinda XD
 Hisami Scott :)
 Virgilio Viernes ಠ*ಠ
+Carter Hawthorne (__-){
 Sylve Baum U・ﻌ・U
 Nathan Swaim
 Jaclyn Rutter :-D
@@ -96,6 +100,7 @@ Ashley Quarford :P
 Lucas Cannon  😱🙀
 Modio Thiam
 Praj Iyer
+Brett Somero
 Paola Cernada ❤️
 Sebastian Torresola :)
 Aubrey Floyd 🤷🏻‍♀️
@@ -104,6 +109,7 @@ Joonhyung Kang
 Hana Alizai 😊
 Tyler Harwood 👀
 Atlee Hlainka 🌎
+Lauren Campbell :D
 Jesse Chang 👀
 Walt Bringenberg :)
 Jaron Moore 😎
@@ -131,6 +137,7 @@ Arturo Martinez  \m/ >_< \m/
 Jackson Van Dyke 🍞
 John Tran 🐈‍⬛
 Brittany Healey (≧◡≦)
+James Bray 🤗
 Matthew Stagg ¯\_(ツ)_/¯
 Samuel Davidson
 Lawrence Kim
@@ -139,9 +146,14 @@ Chris Hall 💀
 Devin Daniels 😼
 Gemini Kaushik <3
 Elliot Foley XDD
+Jeremiah Hicks 
 Quyen Nguyen OwO
 Cheyenne Plutchak ^__^
+Allyson Villaflor ˚₊‧꒰ა 🎀 ໒꒱ ‧₊˚
 Haedon Kaufman 🍕
 Freddie Main III
 Velislav Babatchev 🤖
 Evan Monroe 😎
+Katherine Worms 🥲
+Katherine Worms 🤪
+Camille Gonzales 🥺
