@@ -1,7 +1,10 @@
+Teresita Nader ^-^
 Devin Fahnestock 🫠
 Hayden Burgess ⊙▂⊙
 Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
+Tatiana Cherne 🦋
+Joshua Kim
 Jacob Springer :)
 Aniket Poojari ʕ•|•ʔ
 Steven Wallace ¯\_(ツ)_/¯
@@ -16,8 +19,11 @@ Lydia Fares :D
 Kippen Lee (╯°□°）╯︵ ┻━┻
 Michael Hunter 🍕
 Jonathan Toussaint ;-)
+Julie Thurmes :P
 Bryan Caples ᕕ(⌐■*■)ᕗ ♪♬
+Andrew Bottom (-_-)
 Monica Zhang
+Jared Norris 🤠
 Gabriel Mortensen
 Milton Huynh 😎
 Christopher Buss
@@ -26,7 +32,7 @@ James Carmona ( ͡° ͜ʖ ͡°)
 Mackenzie Paradeis
 Rasika Baskaran (◕‿◕)
 Philip Tasabia :O
-Nishanth Dass @( _ O _ )@
+Nishanth Dass @( _ O * )@
 Noah Zajicek -*-
 Sativa Maciel (^-^)
 Zachary Robertson :)
@@ -38,14 +44,14 @@ Benjamin Singeltary 👻
 Guru Updesh Singh :p
 Steven Cai
 Masseeh Safi (ง'̀-'́)ง
-Jerome Cagado 
+Jerome Cagado
 Tevin Voong
-Rachel Spears ╰(*°▽°*)╯
+Rachel Spears ╰(*°▽°\*)╯
 Lauren Scacco ✿
 Nicole Bogart
 Yat Tung Ho (•⚗৺⚗•)
 Kerry James Poulson
-Wyatt Arnsdorf \_(ಠ_ಠ)_/
+Wyatt Arnsdorf \_(ಠ*ಠ)_/
 Lorraine Byrne
 Juan Pablo Duque Ochoa :D
 Kyle Pfiuster 😊
@@ -65,7 +71,7 @@ Abdulrahman Samargandi <|:)
 Myles Scholz 🦎
 Cat Randquist =^.^=
 Gabriele Narmontaite ┬─┬ ノ( ゜-゜ノ)
-Chase Gomez (⌐■*■)
+Chase Gomez (⌐■\*■)
 Abhram Medina
 Reina Takahara <3
 Pavlo Havrylyuk
@@ -76,10 +82,13 @@ flowejam
 Ian Flynn 👻
 Preston Sellers <(-.-)>
 Damiant Chauhan :)
+Elizabeth Bremner XD
 Noddy Ho Ching Lam
+Jonah Gates <(^-^)>
 Christina Boyce :)
 Grant Towers @(^_^)@
 Amadou Diallo
+Megan Dorn 🐌
 Robert Jacobson
 Efe Torunoglu :D
 Michael Ahn -_-'
@@ -87,15 +96,17 @@ Robert Brumleve :P
 Ngoc-Thao Ly :1
 Daniel Dalinda XD
 Hisami Scott :)
-Virgilio Viernes ಠ*ಠ
+Virgilio Viernes ಠ\*ಠ
+Carter Hawthorne (\_\_-){
 Sylve Baum U・ﻌ・U
 Nathan Swaim
 Jaclyn Rutter :-D
 Trevor Dunn 🦖
 Ashley Quarford :P
-Lucas Cannon  😱🙀
+Lucas Cannon 😱🙀
 Modio Thiam
 Praj Iyer
+Brett Somero
 Paola Cernada ❤️
 Sebastian Torresola :)
 Aubrey Floyd 🤷🏻‍♀️
@@ -104,44 +115,65 @@ Joonhyung Kang
 Hana Alizai 😊
 Tyler Harwood 👀
 Atlee Hlainka 🌎
+Lauren Campbell :D
 Jesse Chang 👀
 Walt Bringenberg :)
 Jaron Moore 😎
 Jose Meza
+Annika Ewers :-)
 Michael Lagardera ✊🦾
 Sahil Gaikwad /ᐠ｡‸｡ᐟ\
 Daniel Helm ¯\_(ツ)_/¯
 Dillon Baldwin
 Suyash Sreekumar ^_^
-Brielle Choquer ¯\_(ツ)_/¯    
+Brielle Choquer ¯\_(ツ)_/¯
 Raymond Sales 🍜
-Ira Belyaeva =^.^= 
+Ira Belyaeva =^.^=
+Kayo Zirtidis 🎃
 Artemiy Arzumanov :P
 Aljosa Pantovich :)
-Christian Tramill *.*
+Christian Tramill _._
 Ashton Stasko 🦇
 Alejandro Grau ( ಠ ͜ʖ ರೃ)
-Cameron Alsbrook ༼ つ ◕_◕ ༽つ
+Cameron Alsbrook ༼ つ ◕*◕ ༽つ
 Dylan Varga 🂾
 Maxwell Bauer 👨‍💻
 Umut Altindere 👒⚔🏴☠️🌊
 Andrew Adisoemarta T_T
 Phil Santich
-Arturo Martinez  \m/ >_< \m/
+Arturo Martinez \m/ >*< \m/
 Jackson Van Dyke 🍞
 John Tran 🐈‍⬛
 Brittany Healey (≧◡≦)
-Matthew Stagg ¯\_(ツ)_/¯
+James Bray 🤗
+Matthew Stagg ¯\_(ツ)\_/¯
 Samuel Davidson
 Lawrence Kim
 Marques Mar 🤣
 Chris Hall 💀
 Devin Daniels 😼
-Gemini Kaushik <3 
+Gemini Kaushik <3
 Elliot Foley XDD
+Jeremiah Hicks
 Quyen Nguyen OwO
-Cheyenne Plutchak ^__^
+Cheyenne Plutchak ^\_\_^
+Allyson Villaflor ˚₊‧꒰ა 🎀 ໒꒱ ‧₊˚
 Haedon Kaufman 🍕
 Freddie Main III
+Tongxin Sun 🎨🎨🎨
+Russell Myers 🧟‍♀️
 Velislav Babatchev 🤖
 Allison Karlis (ToT)
+Tyrell Verley (:
+Alexander Anwer :^]
+Tsung-Jui Hsieh (́✺◞౪◟✺‵)
+Connor Baskin 😶‍🌫️
+Evan Monroe 😎
+Katherine Worms 🥲
+Katherine Worms 🤪
+Camille Gonzales 🥺
+Lucas Brown
+Alex Giger (ð > ð)
+Kunal Chopra :)
+William Shiozawa 07
+Blake Hua 🐐
