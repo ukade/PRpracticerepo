@@ -86,6 +86,7 @@ Jonah Gates <(^-^)>
 Christina Boyce :)
 Grant Towers @(^_^)@
 Amadou Diallo
+Megan Dorn 🐌
 Robert Jacobson
 Efe Torunoglu :D
 Michael Ahn -_-'
