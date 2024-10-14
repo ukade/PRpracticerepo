@@ -116,7 +116,7 @@ Jesse Chang 👀
 Walt Bringenberg :)
 Jaron Moore 😎
 Jose Meza
-Annika Budean :)
+Annika Budean :-)
 Michael Lagardera ✊🦾
 Sahil Gaikwad /ᐠ｡‸｡ᐟ\
 Daniel Helm ¯\_(ツ)_/¯
