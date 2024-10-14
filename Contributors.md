@@ -128,6 +128,7 @@ Suyash Sreekumar ^_^
 Brielle Choquer ¯\_(ツ)_/¯
 Raymond Sales 🍜
 Ira Belyaeva =^.^=
+Kayo Zirtidis 🎃
 Artemiy Arzumanov :P
 Aljosa Pantovich :)
 Christian Tramill *.*
