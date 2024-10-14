@@ -80,6 +80,7 @@ flowejam
 Ian Flynn 👻
 Preston Sellers <(-.-)>
 Damiant Chauhan :)
+Elizabeth Bremner XD
 Noddy Ho Ching Lam
 Jonah Gates <(^-^)>
 Christina Boyce :)
@@ -165,3 +166,4 @@ Evan Monroe 😎
 Katherine Worms 🥲
 Katherine Worms 🤪
 Camille Gonzales 🥺
+Alex Giger (ð > ð)
