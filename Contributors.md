@@ -80,11 +80,13 @@ flowejam
 Ian Flynn 👻
 Preston Sellers <(-.-)>
 Damiant Chauhan :)
+Elizabeth Bremner XD
 Noddy Ho Ching Lam
 Jonah Gates <(^-^)>
 Christina Boyce :)
 Grant Towers @(^_^)@
 Amadou Diallo
+Megan Dorn 🐌
 Robert Jacobson
 Efe Torunoglu :D
 Michael Ahn -_-'
@@ -116,6 +118,7 @@ Jesse Chang 👀
 Walt Bringenberg :)
 Jaron Moore 😎
 Jose Meza
+Annika Ewers :-)
 Michael Lagardera ✊🦾
 Sahil Gaikwad /ᐠ｡‸｡ᐟ\
 Daniel Helm ¯\_(ツ)_/¯
@@ -165,3 +168,4 @@ Katherine Worms 🥲
 Katherine Worms 🤪
 Camille Gonzales 🥺
 Lucas Brown
+Alex Giger (ð > ð)
