@@ -40,7 +40,7 @@ Benjamin Singeltary 👻
 Guru Updesh Singh :p
 Steven Cai
 Masseeh Safi (ง'̀-'́)ง
-Jerome Cagado 
+Jerome Cagado
 Tevin Voong
 Rachel Spears ╰(*°▽°*)╯
 Lauren Scacco ✿
@@ -119,9 +119,9 @@ Sahil Gaikwad /ᐠ｡‸｡ᐟ\
 Daniel Helm ¯\_(ツ)_/¯
 Dillon Baldwin
 Suyash Sreekumar ^_^
-Brielle Choquer ¯\_(ツ)_/¯    
+Brielle Choquer ¯\_(ツ)_/¯
 Raymond Sales 🍜
-Ira Belyaeva =^.^= 
+Ira Belyaeva =^.^=
 Artemiy Arzumanov :P
 Aljosa Pantovich :)
 Christian Tramill *.*
@@ -144,7 +144,7 @@ Lawrence Kim
 Marques Mar 🤣
 Chris Hall 💀
 Devin Daniels 😼
-Gemini Kaushik <3 
+Gemini Kaushik <3
 Elliot Foley XDD
 Jeremiah Hicks 
 Quyen Nguyen OwO
@@ -153,6 +153,7 @@ Allyson Villaflor ˚₊‧꒰ა 🎀 ໒꒱ ‧₊˚
 Haedon Kaufman 🍕
 Freddie Main III
 Velislav Babatchev 🤖
+Evan Monroe 😎
 Katherine Worms 🥲
 Katherine Worms 🤪
 Camille Gonzales 🥺
