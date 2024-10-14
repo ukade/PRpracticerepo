@@ -1,7 +1,9 @@
+Teresita Nader ^-^
 Devin Fahnestock 🫠
 Hayden Burgess ⊙▂⊙
 Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
+Tatiana Cherne 🦋
 Jacob Springer :)
 Aniket Poojari ʕ•|•ʔ
 Steven Wallace ¯\_(ツ)_/¯
@@ -16,8 +18,10 @@ Lydia Fares :D
 Kippen Lee (╯°□°）╯︵ ┻━┻
 Michael Hunter 🍕
 Jonathan Toussaint ;-)
+Julie Thurmes :P
 Bryan Caples ᕕ(⌐■*■)ᕗ ♪♬
 Monica Zhang
+Jared Norris 🤠
 Gabriel Mortensen
 Milton Huynh 😎
 Christopher Buss
@@ -38,7 +42,7 @@ Benjamin Singeltary 👻
 Guru Updesh Singh :p
 Steven Cai
 Masseeh Safi (ง'̀-'́)ง
-Jerome Cagado 
+Jerome Cagado
 Tevin Voong
 Rachel Spears ╰(*°▽°*)╯
 Lauren Scacco ✿
@@ -77,6 +81,7 @@ Ian Flynn 👻
 Preston Sellers <(-.-)>
 Damiant Chauhan :)
 Noddy Ho Ching Lam
+Jonah Gates <(^-^)>
 Christina Boyce :)
 Grant Towers @(^_^)@
 Amadou Diallo
@@ -88,6 +93,7 @@ Ngoc-Thao Ly :1
 Daniel Dalinda XD
 Hisami Scott :)
 Virgilio Viernes ಠ*ಠ
+Carter Hawthorne (__-){
 Sylve Baum U・ﻌ・U
 Nathan Swaim
 Jaclyn Rutter :-D
@@ -96,6 +102,7 @@ Ashley Quarford :P
 Lucas Cannon  😱🙀
 Modio Thiam
 Praj Iyer
+Brett Somero
 Paola Cernada ❤️
 Sebastian Torresola :)
 Aubrey Floyd 🤷🏻‍♀️
@@ -104,6 +111,7 @@ Joonhyung Kang
 Hana Alizai 😊
 Tyler Harwood 👀
 Atlee Hlainka 🌎
+Lauren Campbell :D
 Jesse Chang 👀
 Walt Bringenberg :)
 Jaron Moore 😎
@@ -113,9 +121,9 @@ Sahil Gaikwad /ᐠ｡‸｡ᐟ\
 Daniel Helm ¯\_(ツ)_/¯
 Dillon Baldwin
 Suyash Sreekumar ^_^
-Brielle Choquer ¯\_(ツ)_/¯    
+Brielle Choquer ¯\_(ツ)_/¯
 Raymond Sales 🍜
-Ira Belyaeva =^.^= 
+Ira Belyaeva =^.^=
 Artemiy Arzumanov :P
 Aljosa Pantovich :)
 Christian Tramill *.*
@@ -131,17 +139,27 @@ Arturo Martinez  \m/ >_< \m/
 Jackson Van Dyke 🍞
 John Tran 🐈‍⬛
 Brittany Healey (≧◡≦)
+James Bray 🤗
 Matthew Stagg ¯\_(ツ)_/¯
 Samuel Davidson
 Lawrence Kim
 Marques Mar 🤣
 Chris Hall 💀
 Devin Daniels 😼
-Gemini Kaushik <3 
+Gemini Kaushik <3
 Elliot Foley XDD
+Jeremiah Hicks 
 Quyen Nguyen OwO
 Cheyenne Plutchak ^__^
+Allyson Villaflor ˚₊‧꒰ა 🎀 ໒꒱ ‧₊˚
 Haedon Kaufman 🍕
 Freddie Main III
 Velislav Babatchev 🤖
 Tyrell Verley (:
+Alexander Anwer :^]
+Tsung-Jui Hsieh (́✺◞౪◟✺‵)
+Connor Baskin 😶‍🌫️
+Evan Monroe 😎
+Katherine Worms 🥲
+Katherine Worms 🤪
+Camille Gonzales 🥺
