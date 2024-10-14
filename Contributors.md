@@ -4,6 +4,7 @@ Hayden Burgess ⊙▂⊙
 Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
+Joshua Kim
 Jacob Springer :)
 Aniket Poojari ʕ•|•ʔ
 Steven Wallace ¯\_(ツ)_/¯
@@ -31,7 +32,7 @@ James Carmona ( ͡° ͜ʖ ͡°)
 Mackenzie Paradeis
 Rasika Baskaran (◕‿◕)
 Philip Tasabia :O
-Nishanth Dass @( _ O _ )@
+Nishanth Dass @( _ O * )@
 Noah Zajicek -*-
 Sativa Maciel (^-^)
 Zachary Robertson :)
@@ -45,12 +46,12 @@ Steven Cai
 Masseeh Safi (ง'̀-'́)ง
 Jerome Cagado
 Tevin Voong
-Rachel Spears ╰(*°▽°*)╯
+Rachel Spears ╰(*°▽°\*)╯
 Lauren Scacco ✿
 Nicole Bogart
 Yat Tung Ho (•⚗৺⚗•)
 Kerry James Poulson
-Wyatt Arnsdorf \_(ಠ_ಠ)_/
+Wyatt Arnsdorf \_(ಠ*ಠ)_/
 Lorraine Byrne
 Juan Pablo Duque Ochoa :D
 Kyle Pfiuster 😊
@@ -70,7 +71,7 @@ Abdulrahman Samargandi <|:)
 Myles Scholz 🦎
 Cat Randquist =^.^=
 Gabriele Narmontaite ┬─┬ ノ( ゜-゜ノ)
-Chase Gomez (⌐■*■)
+Chase Gomez (⌐■\*■)
 Abhram Medina
 Reina Takahara <3
 Pavlo Havrylyuk
@@ -95,14 +96,14 @@ Robert Brumleve :P
 Ngoc-Thao Ly :1
 Daniel Dalinda XD
 Hisami Scott :)
-Virgilio Viernes ಠ*ಠ
-Carter Hawthorne (__-){
+Virgilio Viernes ಠ\*ಠ
+Carter Hawthorne (\_\_-){
 Sylve Baum U・ﻌ・U
 Nathan Swaim
 Jaclyn Rutter :-D
 Trevor Dunn 🦖
 Ashley Quarford :P
-Lucas Cannon  😱🙀
+Lucas Cannon 😱🙀
 Modio Thiam
 Praj Iyer
 Brett Somero
@@ -131,21 +132,21 @@ Ira Belyaeva =^.^=
 Kayo Zirtidis 🎃
 Artemiy Arzumanov :P
 Aljosa Pantovich :)
-Christian Tramill *.*
+Christian Tramill _._
 Ashton Stasko 🦇
 Alejandro Grau ( ಠ ͜ʖ ರೃ)
-Cameron Alsbrook ༼ つ ◕_◕ ༽つ
+Cameron Alsbrook ༼ つ ◕*◕ ༽つ
 Dylan Varga 🂾
 Maxwell Bauer 👨‍💻
 Umut Altindere 👒⚔🏴☠️🌊
 Andrew Adisoemarta T_T
 Phil Santich
-Arturo Martinez  \m/ >_< \m/
+Arturo Martinez \m/ >*< \m/
 Jackson Van Dyke 🍞
 John Tran 🐈‍⬛
 Brittany Healey (≧◡≦)
 James Bray 🤗
-Matthew Stagg ¯\_(ツ)_/¯
+Matthew Stagg ¯\_(ツ)\_/¯
 Samuel Davidson
 Lawrence Kim
 Marques Mar 🤣
@@ -153,9 +154,9 @@ Chris Hall 💀
 Devin Daniels 😼
 Gemini Kaushik <3
 Elliot Foley XDD
-Jeremiah Hicks 
+Jeremiah Hicks
 Quyen Nguyen OwO
-Cheyenne Plutchak ^__^
+Cheyenne Plutchak ^\_\_^
 Allyson Villaflor ˚₊‧꒰ა 🎀 ໒꒱ ‧₊˚
 Haedon Kaufman 🍕
 Freddie Main III
