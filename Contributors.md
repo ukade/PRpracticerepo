@@ -2,6 +2,7 @@ Dylan Majewski 🧿
 Audrie Nielsen ʕっ•ᴥ•ʔっ
 Teresita Nader ^-^
 Devin Fahnestock 🫠
+Dominic Fantauzzo 6_6
 Hayden Burgess ⊙▂⊙
 Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
