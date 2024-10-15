@@ -29,6 +29,7 @@ Jared Norris 🤠
 Gabriel Mortensen
 Milton Huynh 😎
 Christopher Buss
+Lindsay Schwartz :P
 Andrew Cearlock
 James Carmona ( ͡° ͜ʖ ͡°)
 Mackenzie Paradeis
