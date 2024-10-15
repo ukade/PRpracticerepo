@@ -34,6 +34,7 @@ Luiz De Miranda Leao
 Milton Huynh 😎
 Christopher Buss
 Lindsay Schwartz :P
+Michelino Gali
 Andrew Cearlock
 Syme Shahidi
 James Carmona ( ͡° ͜ʖ ͡°)
@@ -164,6 +165,7 @@ Matthew Stagg ¯\_(ツ)\_/¯
 Samuel Davidson
 Lawrence Kim
 Marques Mar 🤣
+Cory Apperson 🤖
 Chris Hall 💀
 Devin Daniels 😼
 Gemini Kaushik <3
@@ -199,6 +201,7 @@ Alex Higham ((̲̅ ̲̅(̲̅C̲̅r̲̅a̲̅y̲̅o̲̅n̲̅( ̲̅((>
 Hannah Barfield ʕ̡̢̡ʘ̅͟͜͡ʘ̲̅ʔ̢̡̢
 Bogdan Gevko (===||:::::::::::::::>
 Michael Lin
+John Paul Feliciano
 Brant Cass 🦖
 Emmet Miller 
 Nathan Cahoy "¯\_(ツ)_/¯"
@@ -217,3 +220,5 @@ Samuel Kvanvig 🐄
 Liam Clark :)
 Robert Collins 🦈
 Christian Castro 🔥💾🔥
+Kevin Rossel ⊂(◉‿◉)つ
+Elizabeth Alexandra McIntire 🍍
