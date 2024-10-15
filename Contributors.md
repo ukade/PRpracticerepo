@@ -194,6 +194,7 @@ Blake Hua 🐐
 Hannah Barfield ʕ̡̢̡ʘ̅͟͜͡ʘ̲̅ʔ̢̡̢
 Bogdan Gevko (===||:::::::::::::::>
 Michael Lin
+John Paul Feliciano
 Brant Cass 🦖
 Emmet Miller 
 Nathan Cahoy "¯\_(ツ)_/¯"
