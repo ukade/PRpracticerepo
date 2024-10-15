@@ -2,11 +2,13 @@ Dylan Majewski 🧿
 Audrie Nielsen ʕっ•ᴥ•ʔっ
 Teresita Nader ^-^
 Devin Fahnestock 🫠
+Dominic Fantauzzo 6_6
 Hayden Burgess ⊙▂⊙
 Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
 Joshua Kim
+Joe Storto 🍕
 Duncan Roepke 🗿
 Jacob Springer :)
 Aniket Poojari ʕ•|•ʔ
@@ -24,6 +26,7 @@ Kippen Lee (╯°□°）╯︵ ┻━┻
 Michael Hunter 🍕
 Jonathan Toussaint ;-)
 Julie Thurmes :P
+Jamie Parker ಠ_ಠ
 Bryan Caples ᕕ(⌐■_■)ᕗ ♪♬
 Thuy Duyen Doan 🤠
 Andrew Bottom (-_-)
@@ -76,6 +79,7 @@ Sean Siders 🫠
 Maren Cole 🐎
 Josh Tan :D
 Paden Milligan
+Guillermo Medina ツ
 Brynn DeVaan :v)
 Wesley Alejandro :3
 Alyssa Cabading 👁️👄👁️
@@ -225,3 +229,4 @@ Christian Castro 🔥💾🔥
 Kevin Rossel ⊂(◉‿◉)つ
 Elizabeth Alexandra McIntire 🍍
 Duong Tran :blush:
+
