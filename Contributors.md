@@ -2,11 +2,13 @@ Dylan Majewski 🧿
 Audrie Nielsen ʕっ•ᴥ•ʔっ
 Teresita Nader ^-^
 Devin Fahnestock 🫠
+Dominic Fantauzzo 6_6
 Hayden Burgess ⊙▂⊙
 Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
 Joshua Kim
+Joe Storto 🍕
 Duncan Roepke 🗿
 Jacob Springer :)
 Aniket Poojari ʕ•|•ʔ
@@ -225,3 +227,4 @@ Christian Castro 🔥💾🔥
 Kevin Rossel ⊂(◉‿◉)つ
 Elizabeth Alexandra McIntire 🍍
 Duong Tran :blush:
+Josh Pulattie
