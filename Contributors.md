@@ -175,6 +175,7 @@ Evan Monroe 😎
 Katherine Worms 🥲
 Katherine Worms 🤪
 Camille Gonzales 🥺
+Rosemary Joe
 Lucas Brown
 Michael Calandriello 🐶
 Alex Giger (ð > ð)
