@@ -33,6 +33,7 @@ Gabriel Mortensen
 Luiz De Miranda Leao
 Milton Huynh 😎
 Christopher Buss
+Lindsay Schwartz :P
 Andrew Cearlock
 Syme Shahidi
 James Carmona ( ͡° ͜ʖ ͡°)
