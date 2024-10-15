@@ -34,6 +34,7 @@ Luiz De Miranda Leao
 Milton Huynh 😎
 Christopher Buss
 Lindsay Schwartz :P
+Michelino Gali
 Andrew Cearlock
 Syme Shahidi
 James Carmona ( ͡° ͜ʖ ͡°)
