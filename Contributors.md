@@ -7,6 +7,7 @@ Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
 Joshua Kim
+Duncan Roepke 🗿
 Jacob Springer :)
 Aniket Poojari ʕ•|•ʔ
 Steven Wallace ¯\_(ツ)_/¯
@@ -32,6 +33,7 @@ Gabriel Mortensen
 Luiz De Miranda Leao
 Milton Huynh 😎
 Christopher Buss
+Lindsay Schwartz :P
 Andrew Cearlock
 Syme Shahidi
 James Carmona ( ͡° ͜ʖ ͡°)
@@ -188,6 +190,8 @@ Alex Giger (ð > ð)
 Kunal Chopra :)
 William Shiozawa 07
 Blake Hua 🐐
+Hannah Barfield ʕ̡̢̡ʘ̅͟͜͡ʘ̲̅ʔ̢̡̢
+Bogdan Gevko (===||:::::::::::::::>
 Michael Lin
 Brant Cass 🦖
 Emmet Miller 
