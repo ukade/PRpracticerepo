@@ -26,6 +26,7 @@ Kippen Lee (╯°□°）╯︵ ┻━┻
 Michael Hunter 🍕
 Jonathan Toussaint ;-)
 Julie Thurmes :P
+Jamie Parker ಠ_ಠ
 Bryan Caples ᕕ(⌐■_■)ᕗ ♪♬
 Thuy Duyen Doan 🤠
 Andrew Bottom (-_-)
