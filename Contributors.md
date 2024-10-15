@@ -28,6 +28,7 @@ Gabriel Mortensen
 Milton Huynh 😎
 Christopher Buss
 Andrew Cearlock
+Syme Shahidi
 James Carmona ( ͡° ͜ʖ ͡°)
 Mackenzie Paradeis
 Rasika Baskaran (◕‿◕)
