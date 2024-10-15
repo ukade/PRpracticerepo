@@ -19,6 +19,7 @@ Jonathan Toussaint ;-)
 Bryan Caples ᕕ(⌐■*■)ᕗ ♪♬
 Monica Zhang
 Gabriel Mortensen
+Luiz De Miranda Leao
 Milton Huynh 😎
 Christopher Buss
 Andrew Cearlock
