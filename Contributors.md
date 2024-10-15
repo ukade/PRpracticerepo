@@ -152,6 +152,7 @@ Maxwell Bauer 👨‍💻
 Umut Altindere 👒⚔🏴☠️🌊
 Andrew Adisoemarta T_T
 Phil Santich
+Mallory Huston (☞ ͡° ͜ʖ ͡°)☞ 
 Arturo Martinez \m/ >_< \m/
 Jackson Van Dyke 🍞
 John Tran 🐈‍⬛
