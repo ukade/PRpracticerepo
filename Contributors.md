@@ -1,3 +1,4 @@
+Dylan Majewski 🧿
 Audrie Nielsen ʕっ•ᴥ•ʔっ
 Teresita Nader ^-^
 Devin Fahnestock 🫠
@@ -6,6 +7,7 @@ Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
 Joshua Kim
+Duncan Roepke 🗿
 Jacob Springer :)
 Aniket Poojari ʕ•|•ʔ
 Steven Wallace ¯\_(ツ)_/¯
@@ -23,14 +25,17 @@ Michael Hunter 🍕
 Jonathan Toussaint ;-)
 Julie Thurmes :P
 Bryan Caples ᕕ(⌐■_■)ᕗ ♪♬
+Thuy Duyen Doan 🤠
 Andrew Bottom (-_-)
 Monica Zhang
 Jared Norris 🤠
 Gabriel Mortensen
+Luiz De Miranda Leao
 Milton Huynh 😎
 Christopher Buss
 Lindsay Schwartz :P
 Andrew Cearlock
+Syme Shahidi
 James Carmona ( ͡° ͜ʖ ͡°)
 Mackenzie Paradeis
 Rasika Baskaran (◕‿◕)
@@ -74,6 +79,7 @@ Alyssa Cabading 👁️👄👁️
 Abdulrahman Samargandi <|:)
 Myles Scholz 🦎
 Cat Randquist =^.^=
+Andrew Poon (╯°□°)╯︵ ┻━┻
 Gabriele Narmontaite ┬─┬ ノ( ゜-゜ノ)
 Chase Gomez (⌐■\*■)
 Abhram Medina
@@ -184,6 +190,18 @@ Alex Giger (ð > ð)
 Kunal Chopra :)
 William Shiozawa 07
 Blake Hua 🐐
+Hannah Barfield ʕ̡̢̡ʘ̅͟͜͡ʘ̲̅ʔ̢̡̢
+Bogdan Gevko (===||:::::::::::::::>
+Michael Lin
+Brant Cass 🦖
+Emmet Miller 
+Nathan Cahoy "¯\_(ツ)_/¯"
+Thomas Gullo :)
+Benjamin Liden-Sellers 💃
+Kenny Igbechi 🦖 🦖
+Derek Knowlton ✌⊂(✰‿✰)つ✌
+Noah Strong :)
+Alan Massey 🏄
 Nick Laustrup (ง'̀-'́)ง
 Ethan Ahuja🙂‍↕️
 Chester Corpuz .:_:
