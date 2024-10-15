@@ -202,3 +202,4 @@ Nick Laustrup (ง'̀-'́)ง
 Ethan Ahuja🙂‍↕️
 Chester Corpuz .:_:
 Rimsha Ejaz 
+Samuel Kvanvig 🐄
