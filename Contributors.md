@@ -58,6 +58,7 @@ Rachel Spears ╰(_°▽°\*)╯
 Lauren Scacco ✿
 Nicole Bogart
 Yat Tung Ho (•⚗৺⚗•)
+Naveen Sewani
 Kerry James Poulson
 Wyatt Arnsdorf \_(ಠ*ಠ)_/
 Lorraine Byrne
@@ -131,6 +132,7 @@ Jesse Chang 👀
 Walt Bringenberg :)
 Jaron Moore 😎
 Jose Meza
+Jomar Malpica
 Annika Ewers :-)
 Michael Lagardera ✊🦾
 Sahil Gaikwad /ᐠ｡‸｡ᐟ  
@@ -152,6 +154,7 @@ Maxwell Bauer 👨‍💻
 Umut Altindere 👒⚔🏴☠️🌊
 Andrew Adisoemarta T_T
 Phil Santich
+Mallory Huston (☞ ͡° ͜ʖ ͡°)☞ 
 Arturo Martinez \m/ >_< \m/
 Jackson Van Dyke 🍞
 John Tran 🐈‍⬛
@@ -191,6 +194,7 @@ Alex Giger (ð > ð)
 Kunal Chopra :)
 William Shiozawa 07
 Blake Hua 🐐
+Alex Higham ((̲̅ ̲̅(̲̅C̲̅r̲̅a̲̅y̲̅o̲̅n̲̅( ̲̅((>
 Hannah Barfield ʕ̡̢̡ʘ̅͟͜͡ʘ̲̅ʔ̢̡̢
 Bogdan Gevko (===||:::::::::::::::>
 Michael Lin
@@ -209,3 +213,4 @@ Chester Corpuz .:_:
 Rimsha Ejaz 
 Samuel Kvanvig 🐄
 Robert Collins 🦈
+Christian Castro 🔥💾🔥
