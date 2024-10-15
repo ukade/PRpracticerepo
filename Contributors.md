@@ -173,6 +173,7 @@ Evan Monroe 😎
 Katherine Worms 🥲
 Katherine Worms 🤪
 Camille Gonzales 🥺
+Rosemary Joe
 Lucas Brown
 Alex Giger (ð > ð)
 Kunal Chopra :)
