@@ -1,3 +1,4 @@
+Audrie Nielsen ʕっ•ᴥ•ʔっ
 Teresita Nader ^-^
 Devin Fahnestock 🫠
 Hayden Burgess ⊙▂⊙
@@ -8,20 +9,20 @@ Joshua Kim
 Jacob Springer :)
 Aniket Poojari ʕ•|•ʔ
 Steven Wallace ¯\_(ツ)_/¯
-Steven Schaerer ><>
 Daniel Grossberg 🦕
+Steven Schaerer ><>
 Trevor Phillips °º¤ø,¸¸,ø¤º°`°º¤ø,¸,ø¤°º¤ø,¸¸,ø¤º°`°º¤ø,¸
 Liam Pestrella :)
 Jawad Abdullah ( ˘︹˘ )
 Colin Cheng ^_^
-Matthew O'Malley-Nichols <*<
+Matthew O'Malley-Nichols <_<
 Daniel Fontenot ┐(‘～`;)┌
 Lydia Fares :D
 Kippen Lee (╯°□°）╯︵ ┻━┻
 Michael Hunter 🍕
 Jonathan Toussaint ;-)
 Julie Thurmes :P
-Bryan Caples ᕕ(⌐■*■)ᕗ ♪♬
+Bryan Caples ᕕ(⌐■_■)ᕗ ♪♬
 Andrew Bottom (-_-)
 Monica Zhang
 Jared Norris 🤠
@@ -34,7 +35,7 @@ Mackenzie Paradeis
 Rasika Baskaran (◕‿◕)
 Philip Tasabia :O
 Nishanth Dass @( _ O * )@
-Noah Zajicek -*-
+Noah Zajicek -_-
 Sativa Maciel (^-^)
 Zachary Robertson :)
 Alexander Simon XD
@@ -47,7 +48,7 @@ Steven Cai
 Masseeh Safi (ง'̀-'́)ง
 Jerome Cagado
 Tevin Voong
-Rachel Spears ╰(*°▽°\*)╯
+Rachel Spears ╰(_°▽°\*)╯
 Lauren Scacco ✿
 Nicole Bogart
 Yat Tung Ho (•⚗৺⚗•)
@@ -124,7 +125,7 @@ Jaron Moore 😎
 Jose Meza
 Annika Ewers :-)
 Michael Lagardera ✊🦾
-Sahil Gaikwad /ᐠ｡‸｡ᐟ\
+Sahil Gaikwad /ᐠ｡‸｡ᐟ  
 Daniel Helm ¯\_(ツ)_/¯
 Dillon Baldwin
 Suyash Sreekumar ^_^
@@ -137,13 +138,13 @@ Aljosa Pantovich :)
 Christian Tramill _._
 Ashton Stasko 🦇
 Alejandro Grau ( ಠ ͜ʖ ರೃ)
-Cameron Alsbrook ༼ つ ◕*◕ ༽つ
+Cameron Alsbrook ༼ つ ◕_◕ ༽つ
 Dylan Varga 🂾
 Maxwell Bauer 👨‍💻
 Umut Altindere 👒⚔🏴☠️🌊
 Andrew Adisoemarta T_T
 Phil Santich
-Arturo Martinez \m/ >*< \m/
+Arturo Martinez \m/ >_< \m/
 Jackson Van Dyke 🍞
 John Tran 🐈‍⬛
 Brittany Healey (≧◡≦)
@@ -157,6 +158,7 @@ Devin Daniels 😼
 Gemini Kaushik <3
 Elliot Foley XDD
 Jeremiah Hicks
+Aditya Chandran ' v '
 Quyen Nguyen OwO
 Cheyenne Plutchak ^\_\_^
 Allyson Villaflor ˚₊‧꒰ა 🎀 ໒꒱ ‧₊˚
@@ -174,8 +176,14 @@ Evan Monroe 😎
 Katherine Worms 🥲
 Katherine Worms 🤪
 Camille Gonzales 🥺
+Rosemary Joe
 Lucas Brown
+Michael Calandriello 🐶
 Alex Giger (ð > ð)
 Kunal Chopra :)
 William Shiozawa 07
 Blake Hua 🐐
+Nick Laustrup (ง'̀-'́)ง
+Ethan Ahuja🙂‍↕️
+Chester Corpuz .:_:
+Rimsha Ejaz 
