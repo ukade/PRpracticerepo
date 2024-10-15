@@ -23,6 +23,7 @@ Michael Hunter 🍕
 Jonathan Toussaint ;-)
 Julie Thurmes :P
 Bryan Caples ᕕ(⌐■_■)ᕗ ♪♬
+Thuy Duyen Doan 🤠
 Andrew Bottom (-_-)
 Monica Zhang
 Jared Norris 🤠
