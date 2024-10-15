@@ -9,6 +9,7 @@ Joshua Kim
 Jacob Springer :)
 Aniket Poojari ʕ•|•ʔ
 Steven Wallace ¯\_(ツ)_/¯
+Daniel Grossberg 🦕
 Steven Schaerer ><>
 Trevor Phillips °º¤ø,¸¸,ø¤º°`°º¤ø,¸,ø¤°º¤ø,¸¸,ø¤º°`°º¤ø,¸
 Liam Pestrella :)
