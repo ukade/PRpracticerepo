@@ -6,6 +6,7 @@ Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
 Joshua Kim
+Duncan Roepke 🗿
 Jacob Springer :)
 Aniket Poojari ʕ•|•ʔ
 Steven Wallace ¯\_(ツ)_/¯
