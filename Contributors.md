@@ -1,3 +1,4 @@
+Audrie Nielsen ʕっ•ᴥ•ʔっ
 Teresita Nader ^-^
 Devin Fahnestock 🫠
 Hayden Burgess ⊙▂⊙
@@ -156,6 +157,7 @@ Devin Daniels 😼
 Gemini Kaushik <3
 Elliot Foley XDD
 Jeremiah Hicks
+Aditya Chandran ' v '
 Quyen Nguyen OwO
 Cheyenne Plutchak ^\_\_^
 Allyson Villaflor ˚₊‧꒰ა 🎀 ໒꒱ ‧₊˚
@@ -174,8 +176,11 @@ Katherine Worms 🥲
 Katherine Worms 🤪
 Camille Gonzales 🥺
 Lucas Brown
+Michael Calandriello 🐶
 Alex Giger (ð > ð)
 Kunal Chopra :)
 William Shiozawa 07
 Blake Hua 🐐
 Ethan Ahuja🙂‍↕️
+Chester Corpuz .:_:
+Rimsha Ejaz 
