@@ -184,6 +184,7 @@ Alex Giger (ð > ð)
 Kunal Chopra :)
 William Shiozawa 07
 Blake Hua 🐐
+Derek Knowlton ✌⊂(✰‿✰)つ✌
 Noah Strong :)
 Alan Massey 🏄
 Nick Laustrup (ง'̀-'́)ง
