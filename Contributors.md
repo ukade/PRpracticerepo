@@ -185,6 +185,7 @@ Tsung-Jui Hsieh (́✺◞౪◟✺‵)
 Connor Baskin 😶‍🌫️
 Evan Monroe 😎
 Katherine Worms 🥲
+Jane Brusilovsky ¯\_(ツ)_/¯  
 Katherine Worms 🤪
 Camille Gonzales 🥺
 Rosemary Joe
