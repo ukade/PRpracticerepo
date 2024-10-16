@@ -8,6 +8,7 @@ Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
 Joshua Kim
+Christopher Pavlovich :D
 Derek Westjohn 🎸
 Joe Storto 🍕
 Duncan Roepke 🗿
