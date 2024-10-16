@@ -11,6 +11,7 @@ Joshua Kim
 Joe Storto 🍕
 Duncan Roepke 🗿
 Jacob Springer :)
+Karan Patel :0
 Aniket Poojari ʕ•|•ʔ
 Steven Wallace ¯\_(ツ)_/¯
 Daniel Grossberg 🦕
@@ -19,6 +20,7 @@ Trevor Phillips °º¤ø,¸¸,ø¤º°`°º¤ø,¸,ø¤°º¤ø,¸¸,ø¤º°`°
 Liam Pestrella :)
 Jawad Abdullah ( ˘︹˘ )
 Colin Cheng ^_^
+Anthony Javiya 🦧
 Matthew O'Malley-Nichols <_<
 Daniel Fontenot ┐(‘～`;)┌
 Lydia Fares :D
@@ -216,8 +218,10 @@ Derek Knowlton ✌⊂(✰‿✰)つ✌
 Noah Strong :)
 Ryan Harrison
 Alexandra Rogers =^..^=
+Christopher McLean 🧐
 Alan Massey 🏄
 Nick Laustrup (ง'̀-'́)ง
+Saurav Shrestha
 Ethan Ahuja🙂‍↕️
 Chester Corpuz .:_:
 Rimsha Ejaz 
@@ -229,4 +233,5 @@ Christian Castro 🔥💾🔥
 Kevin Rossel ⊂(◉‿◉)つ
 Elizabeth Alexandra McIntire 🍍
 Duong Tran :blush:
-
+Josh Pulattie
+Joshua Kim XD
