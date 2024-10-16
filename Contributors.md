@@ -4,6 +4,7 @@ Teresita Nader ^-^
 Devin Fahnestock 🫠
 Dominic Fantauzzo 6_6
 Hayden Burgess ⊙▂⊙
+Hanjun Kim (ʕo.o?)
 Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
