@@ -82,6 +82,7 @@ Paden Milligan
 Guillermo Medina ツ
 Brynn DeVaan :v)
 Wesley Alejandro :3
+Sean Curtis the Wise
 Alyssa Cabading 👁️👄👁️
 Abdulrahman Samargandi <|:)
 Myles Scholz 🦎
