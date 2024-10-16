@@ -1,24 +1,28 @@
 Dylan Majewski 🧿
-Audrie Nielsen ʕっ•ᴥ•ʔっ
+Audrie Nielsen ʕ っ•ᴥ•ʔ っ
 Teresita Nader ^-^
 Devin Fahnestock 🫠
-Dominic Fantauzzo 6_6
+Dominic Fantauzzo 6*6
 Hayden Burgess ⊙▂⊙
 Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
 Joshua Kim
+Derek Westjohn 🎸
 Joe Storto 🍕
 Duncan Roepke 🗿
 Jacob Springer :)
+Karan Patel :0
 Aniket Poojari ʕ•|•ʔ
-Steven Wallace ¯\_(ツ)_/¯
+Steven Wallace ¯\_(ツ)*/¯
 Daniel Grossberg 🦕
 Steven Schaerer ><>
+Shunan Zhu
 Trevor Phillips °º¤ø,¸¸,ø¤º°`°º¤ø,¸,ø¤°º¤ø,¸¸,ø¤º°`°º¤ø,¸
 Liam Pestrella :)
 Jawad Abdullah ( ˘︹˘ )
 Colin Cheng ^_^
+Anthony Javiya 🦧
 Matthew O'Malley-Nichols <_<
 Daniel Fontenot ┐(‘～`;)┌
 Lydia Fares :D
@@ -26,6 +30,7 @@ Kippen Lee (╯°□°）╯︵ ┻━┻
 Michael Hunter 🍕
 Jonathan Toussaint ;-)
 Julie Thurmes :P
+Karnbir Randhawa
 Jamie Parker ಠ_ಠ
 Bryan Caples ᕕ(⌐■_■)ᕗ ♪♬
 Thuy Duyen Doan 🤠
@@ -40,14 +45,16 @@ Lindsay Schwartz :P
 Michelino Gali
 Andrew Cearlock
 Syme Shahidi
+Patrick Culley :-)
 James Carmona ( ͡° ͜ʖ ͡°)
 Mackenzie Paradeis
 Rasika Baskaran (◕‿◕)
 Philip Tasabia :O
-Nishanth Dass @( _ O * )@
+Nishanth Dass @( _ O _ )@
 Noah Zajicek -_-
 Sativa Maciel (^-^)
 Zachary Robertson :)
+Kevin Hernández 🛸
 Alexander Simon XD
 Antony Thomas :o
 Kristin Towns XD :)
@@ -58,7 +65,7 @@ Steven Cai
 Masseeh Safi (ง'̀-'́)ง
 Jerome Cagado
 Tevin Voong
-Rachel Spears ╰(_°▽°\*)╯
+Rachel Spears ╰(*°▽°\*)╯
 Lauren Scacco ✿
 Nicole Bogart
 Yat Tung Ho (•⚗৺⚗•)
@@ -66,6 +73,7 @@ Naveen Sewani
 Kerry James Poulson
 Wyatt Arnsdorf \_(ಠ*ಠ)_/
 Lorraine Byrne
+Andrew Lawson 0_0
 Juan Pablo Duque Ochoa :D
 Kyle Pfiuster 😊
 Robin Yi :)
@@ -88,6 +96,7 @@ Myles Scholz 🦎
 Cat Randquist =^.^=
 Andrew Poon (╯°□°)╯︵ ┻━┻
 Gabriele Narmontaite ┬─┬ ノ( ゜-゜ノ)
+Tyler Cohade (╯°□°)╯︵ ┻━┻
 Chase Gomez (⌐■\*■)
 Abhram Medina
 Reina Takahara <3
@@ -122,8 +131,10 @@ Trevor Dunn 🦖
 Ashley Quarford :P
 Lucas Cannon 😱🙀
 Modio Thiam
+Edward Fitzgibbon ヽ༼ຈل͜ຈ༽ﾉ
 Praj Iyer
 Brett Somero
+Morgan Baker 🧙🏻‍♂️
 Paola Cernada ❤️
 Sebastian Torresola :)
 Aubrey Floyd 🤷🏻‍♀️
@@ -140,6 +151,7 @@ Jose Meza
 Jomar Malpica
 Annika Ewers :-)
 Michael Lagardera ✊🦾
+Haris Hambasic Харис Хамбашић
 Sahil Gaikwad /ᐠ｡‸｡ᐟ  
 Daniel Helm ¯\_(ツ)_/¯
 Dillon Baldwin
@@ -153,14 +165,14 @@ Aljosa Pantovich :)
 Christian Tramill _._
 Ashton Stasko 🦇
 Alejandro Grau ( ಠ ͜ʖ ರೃ)
-Cameron Alsbrook ༼ つ ◕_◕ ༽つ
+Cameron Alsbrook ༼ つ ◕*◕ ༽つ
 Dylan Varga 🂾
 Maxwell Bauer 👨‍💻
 Umut Altindere 👒⚔🏴☠️🌊
 Andrew Adisoemarta T_T
 Phil Santich
-Mallory Huston (☞ ͡° ͜ʖ ͡°)☞ 
-Arturo Martinez \m/ >_< \m/
+Mallory Huston (☞ ͡° ͜ʖ ͡°)☞
+Arturo Martinez \m/ >*< \m/
 Jackson Van Dyke 🍞
 John Tran 🐈‍⬛
 Brittany Healey (≧◡≦)
@@ -207,27 +219,46 @@ Bogdan Gevko (===||:::::::::::::::>
 Michael Lin
 John Paul Feliciano
 Brant Cass 🦖
-Emmet Miller 
+Emmet Miller
 Nathan Cahoy "¯\_(ツ)_/¯"
 Thomas Gullo :)
 Benjamin Liden-Sellers 💃
 Kenny Igbechi 🦖 🦖
-Derek Knowlton ✌⊂(✰‿✰)つ✌
+Derek Knowlton ✌⊂(✰‿✰)つ ✌
 Noah Strong :)
+Yeonji Lee 🫠
 Ryan Harrison
+Jennifer Trainor ^o^
 Alexandra Rogers =^..^=
+Christopher McLean 🧐
 Alan Massey 🏄
 Nick Laustrup (ง'̀-'́)ง
+Saurav Shrestha
 Ethan Ahuja🙂‍↕️
-Chester Corpuz .:_:
-Rimsha Ejaz 
+Chester Corpuz .:\_:
+Rimsha Ejaz
 Samuel Kvanvig 🐄
 Liam Clark :)
+Jessica Johnson
+Edward Leyva ( ͡❛ ͜ʖ ͡❛)
 Robert Collins 🦈
 Matthew Armstrong ☕️
 Christian Castro 🔥💾🔥
 Kevin Rossel ⊂(◉‿◉)つ
 Elizabeth Alexandra McIntire 🍍
 Duong Tran :blush:
+Andrew Boland Ƹ̵̡Ӝ̵̨̄Ʒ
 Josh Pulattie
 Alicia Curtis
+Kelly Yong .·´¯`(>▂<)´¯`·. 
+Colton Woodruff 🙃
+Seungwoo Son >++('>
+Christopher Zhang
+Austin Martin U´ᴥ`U
+Nicholas Pettus 🤙
+Zachary Hogan
+Lucas Stephens
+Andrew Ketola
+Cody Ray   ><(((º> 
+Brandon Cowan [>^.^]>#
+Joshua Kim XD
