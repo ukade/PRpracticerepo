@@ -8,6 +8,7 @@ Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
 Joshua Kim
+Christopher Pavlovich :D
 Joe Storto 🍕
 Duncan Roepke 🗿
 Jacob Springer :)
