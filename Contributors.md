@@ -1,8 +1,8 @@
 Dylan Majewski 🧿
-Audrie Nielsen ʕっ•ᴥ•ʔっ
+Audrie Nielsen ʕ っ•ᴥ•ʔ っ
 Teresita Nader ^-^
 Devin Fahnestock 🫠
-Dominic Fantauzzo 6_6
+Dominic Fantauzzo 6*6
 Hayden Burgess ⊙▂⊙
 Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
@@ -12,7 +12,7 @@ Joe Storto 🍕
 Duncan Roepke 🗿
 Jacob Springer :)
 Aniket Poojari ʕ•|•ʔ
-Steven Wallace ¯\_(ツ)_/¯
+Steven Wallace ¯\_(ツ)*/¯
 Daniel Grossberg 🦕
 Steven Schaerer ><>
 Trevor Phillips °º¤ø,¸¸,ø¤º°`°º¤ø,¸,ø¤°º¤ø,¸¸,ø¤º°`°º¤ø,¸
@@ -26,8 +26,8 @@ Kippen Lee (╯°□°）╯︵ ┻━┻
 Michael Hunter 🍕
 Jonathan Toussaint ;-)
 Julie Thurmes :P
-Jamie Parker ಠ_ಠ
-Bryan Caples ᕕ(⌐■_■)ᕗ ♪♬
+Jamie Parker ಠ*ಠ
+Bryan Caples ᕕ(⌐■*■)ᕗ ♪♬
 Thuy Duyen Doan 🤠
 Andrew Bottom (-_-)
 Monica Zhang
@@ -44,7 +44,7 @@ James Carmona ( ͡° ͜ʖ ͡°)
 Mackenzie Paradeis
 Rasika Baskaran (◕‿◕)
 Philip Tasabia :O
-Nishanth Dass @( _ O * )@
+Nishanth Dass @( _ O _ )@
 Noah Zajicek -_-
 Sativa Maciel (^-^)
 Zachary Robertson :)
@@ -58,7 +58,7 @@ Steven Cai
 Masseeh Safi (ง'̀-'́)ง
 Jerome Cagado
 Tevin Voong
-Rachel Spears ╰(_°▽°\*)╯
+Rachel Spears ╰(*°▽°\*)╯
 Lauren Scacco ✿
 Nicole Bogart
 Yat Tung Ho (•⚗৺⚗•)
@@ -140,6 +140,7 @@ Jose Meza
 Jomar Malpica
 Annika Ewers :-)
 Michael Lagardera ✊🦾
+Haris Hambasic Харис Хамбашић
 Sahil Gaikwad /ᐠ｡‸｡ᐟ  
 Daniel Helm ¯\_(ツ)_/¯
 Dillon Baldwin
@@ -153,14 +154,14 @@ Aljosa Pantovich :)
 Christian Tramill _._
 Ashton Stasko 🦇
 Alejandro Grau ( ಠ ͜ʖ ರೃ)
-Cameron Alsbrook ༼ つ ◕_◕ ༽つ
+Cameron Alsbrook ༼ つ ◕*◕ ༽つ
 Dylan Varga 🂾
 Maxwell Bauer 👨‍💻
 Umut Altindere 👒⚔🏴☠️🌊
 Andrew Adisoemarta T_T
 Phil Santich
-Mallory Huston (☞ ͡° ͜ʖ ͡°)☞ 
-Arturo Martinez \m/ >_< \m/
+Mallory Huston (☞ ͡° ͜ʖ ͡°)☞
+Arturo Martinez \m/ >*< \m/
 Jackson Van Dyke 🍞
 John Tran 🐈‍⬛
 Brittany Healey (≧◡≦)
@@ -207,20 +208,20 @@ Bogdan Gevko (===||:::::::::::::::>
 Michael Lin
 John Paul Feliciano
 Brant Cass 🦖
-Emmet Miller 
+Emmet Miller
 Nathan Cahoy "¯\_(ツ)_/¯"
 Thomas Gullo :)
 Benjamin Liden-Sellers 💃
 Kenny Igbechi 🦖 🦖
-Derek Knowlton ✌⊂(✰‿✰)つ✌
+Derek Knowlton ✌⊂(✰‿✰)つ ✌
 Noah Strong :)
 Ryan Harrison
 Alexandra Rogers =^..^=
 Alan Massey 🏄
 Nick Laustrup (ง'̀-'́)ง
 Ethan Ahuja🙂‍↕️
-Chester Corpuz .:_:
-Rimsha Ejaz 
+Chester Corpuz .:\_:
+Rimsha Ejaz
 Samuel Kvanvig 🐄
 Liam Clark :)
 Robert Collins 🦈
