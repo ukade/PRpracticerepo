@@ -122,6 +122,7 @@ Trevor Dunn 🦖
 Ashley Quarford :P
 Lucas Cannon 😱🙀
 Modio Thiam
+Edward Fitzgibbon ヽ༼ຈل͜ຈ༽ﾉ
 Praj Iyer
 Brett Somero
 Paola Cernada ❤️
