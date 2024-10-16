@@ -20,6 +20,7 @@ Trevor Phillips °º¤ø,¸¸,ø¤º°`°º¤ø,¸,ø¤°º¤ø,¸¸,ø¤º°`°
 Liam Pestrella :)
 Jawad Abdullah ( ˘︹˘ )
 Colin Cheng ^_^
+Anthony Javiya 🦧
 Matthew O'Malley-Nichols <_<
 Daniel Fontenot ┐(‘～`;)┌
 Lydia Fares :D
