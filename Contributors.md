@@ -11,6 +11,7 @@ Joshua Kim
 Joe Storto 🍕
 Duncan Roepke 🗿
 Jacob Springer :)
+Karan Patel :0
 Aniket Poojari ʕ•|•ʔ
 Steven Wallace ¯\_(ツ)_/¯
 Daniel Grossberg 🦕
