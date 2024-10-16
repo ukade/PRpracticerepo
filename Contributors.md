@@ -249,6 +249,7 @@ Elizabeth Alexandra McIntire 🍍
 Duong Tran :blush:
 Andrew Boland Ƹ̵̡Ӝ̵̨̄Ʒ
 Josh Pulattie
+Jessica Vasilenko (●´⌓`●) 
 Joshua Carle ┻━┻︵ \(°□°)/ ︵ ┻━┻
 Alicia Curtis
 Kelly Yong .·´¯`(>▂<)´¯`·. 
