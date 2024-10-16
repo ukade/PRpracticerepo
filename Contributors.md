@@ -94,6 +94,7 @@ Myles Scholz 🦎
 Cat Randquist =^.^=
 Andrew Poon (╯°□°)╯︵ ┻━┻
 Gabriele Narmontaite ┬─┬ ノ( ゜-゜ノ)
+Tyler Cohade (╯°□°)╯︵ ┻━┻
 Chase Gomez (⌐■\*■)
 Abhram Medina
 Reina Takahara <3
