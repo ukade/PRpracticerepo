@@ -26,6 +26,7 @@ Kippen Lee (╯°□°）╯︵ ┻━┻
 Michael Hunter 🍕
 Jonathan Toussaint ;-)
 Julie Thurmes :P
+Jamie Parker ಠ_ಠ
 Bryan Caples ᕕ(⌐■_■)ᕗ ♪♬
 Thuy Duyen Doan 🤠
 Andrew Bottom (-_-)
@@ -78,6 +79,7 @@ Sean Siders 🫠
 Maren Cole 🐎
 Josh Tan :D
 Paden Milligan
+Guillermo Medina ツ
 Brynn DeVaan :v)
 Wesley Alejandro :3
 Alyssa Cabading 👁️👄👁️
@@ -227,4 +229,5 @@ Matthew Armstrong ☕️
 Christian Castro 🔥💾🔥
 Kevin Rossel ⊂(◉‿◉)つ
 Elizabeth Alexandra McIntire 🍍
+Duong Tran :blush:
 Josh Pulattie
