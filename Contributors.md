@@ -158,7 +158,7 @@ Jomar Malpica
 Annika Ewers :-)
 Michael Lagardera ✊🦾
 Haris Hambasic Харис Хамбашић
-Sahil Gaikwad /ᐠ｡‸｡ᐟ  
+Sahil Gaikwad /ᐠ｡‸｡ᐟ
 Daniel Helm ¯\_(ツ)_/¯
 Dillon Baldwin
 Suyash Sreekumar ^_^
@@ -211,7 +211,7 @@ Tsung-Jui Hsieh (́✺◞౪◟✺‵)
 Connor Baskin 😶‍🌫️
 Evan Monroe 😎
 Katherine Worms 🥲
-Jane Brusilovsky ¯\_(ツ)_/¯  
+Jane Brusilovsky ¯\_(ツ)_/¯
 Katherine Worms 🤪
 Camille Gonzales 🥺
 Rosemary Joe
@@ -261,10 +261,10 @@ Josh Pulattie
 Brandi Cook :3
 Laci Monsrud ♡
 Shubhank Gyawali (:
-Jessica Vasilenko (●´⌓`●) 
+Jessica Vasilenko (●´⌓`●)
 Joshua Carle ┻━┻︵ \(°□°)/ ︵ ┻━┻
 Alicia Curtis
-Kelly Yong .·´¯`(>▂<)´¯`·. 
+Kelly Yong .·´¯`(>▂<)´¯`·.
 Colton Woodruff 🙃
 Seungwoo Son >++('>
 Christopher Zhang
@@ -273,10 +273,11 @@ Nicholas Pettus 🤙
 Zachary Hogan
 Lucas Stephens
 Andrew Ketola
-Cody Ray   ><(((º> 
+Cody Ray   ><(((º>
 Brandon Cowan [>^.^]>#
 Joshua Kim XD
 Byron Hedden
 Kevin Huynh
 Maddi Spawn :)
 Ditrung Duong
+Astrid Bowden 🍓
