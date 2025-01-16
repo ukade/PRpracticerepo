@@ -1,4 +1,5 @@
 Melody Acevedo
+Lena Aljehane 🌏
 Dylan Majewski 🧿
 Audrie Nielsen ʕ っ•ᴥ•ʔ っ
 Teresita Nader ^-^
@@ -284,3 +285,6 @@ Kevin Huynh
 Maddi Spawn :)
 Ditrung Duong
 Astrid Bowden 🍓
+Annalee X. Johnson 🌚
+Po-Hui Lin
+Joshua Wallace 🐄
