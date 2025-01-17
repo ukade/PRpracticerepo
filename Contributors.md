@@ -10,6 +10,7 @@ Hanjun Kim (ʕo.o?)
 Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
+Tallent Hagan (•_•) ( •_•)>⌐■-■ (⌐■_■)
 Joshua Kim
 Christopher Pavlovich :D
 Derek Westjohn 🎸
