@@ -242,6 +242,7 @@ Kenny Igbechi 🦖 🦖
 Derek Knowlton ✌⊂(✰‿✰)つ ✌
 Noah Strong :)
 Yeonji Lee 🫠
+Elena Parapounsky ꒰ᐢ. .ᐢ꒱
 Ryan Harrison
 Jennifer Trainor ^o^
 Alexandra Rogers =^..^=
