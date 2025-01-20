@@ -154,6 +154,7 @@ Aubrey Floyd 🤷🏻‍♀️
 Kavya Kolavasi ❤️
 Joonhyung Kang
 Hana Alizai 😊
+Brandon Nelson 	(ﾉ◕ヮ◕)ﾉ*:・ﾟ✧
 Tyler Harwood 👀
 Atlee Hlainka 🌎
 Lauren Campbell :D
