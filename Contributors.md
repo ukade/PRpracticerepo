@@ -8,6 +8,7 @@ Devin Fahnestock 🫠
 Dominic Fantauzzo 6*6
 Hayden Burgess ⊙▂⊙
 Hanjun Kim (ʕo.o?)
+Luc Yang ฅ՞•ﻌ•՞ฅ
 Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
