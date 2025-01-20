@@ -296,4 +296,5 @@ Annalee X. Johnson 🌚
 Po-Hui Lin
 Jason Szeto 🔥
 Joshua Wallace 🐄
+Michael Rigali ★ ☆ ★ ☆ ★
 Navneet Dhir 
