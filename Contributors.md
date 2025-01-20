@@ -31,6 +31,7 @@ Colin Cheng ^_^
 Anthony Javiya 🦧
 Matthew O'Malley-Nichols <_<
 Daniel Fontenot ┐(‘～`;)┌
+Ethan David Lee 🦫
 Lydia Fares :D
 Kippen Lee (╯°□°）╯︵ ┻━┻
 Michael Hunter 🍕
