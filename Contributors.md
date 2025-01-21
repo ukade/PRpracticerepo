@@ -44,6 +44,7 @@ Bryan Caples ᕕ(⌐■_■)ᕗ ♪♬
 Thuy Duyen Doan 🤠
 Andrew Bottom (-_-)
 Monica Zhang
+Lindsay Bestvater
 Jared Norris 🤠
 Gabriel Mortensen
 Luiz De Miranda Leao
