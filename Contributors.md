@@ -45,6 +45,7 @@ Karnbir Randhawa
 Jamie Parker ಠ_ಠ
 Bryan Caples ᕕ(⌐■_■)ᕗ ♪♬
 Thuy Duyen Doan 🤠
+Nish Sitapara :D
 Andrew Bottom (-_-)
 Monica Zhang
 Jared Norris 🤠
