@@ -1,4 +1,4 @@
-﻿Melody Acevedo
+Melody Acevedo
 Sirus Salari 🏂
 Lena Aljehane 🌏
 Dylan Majewski 🧿
@@ -183,6 +183,7 @@ Haris Hambasic Харис Хамбашић
 Sahil Gaikwad /ᐠ｡‸｡ᐟ
 Daniel Helm ¯\_(ツ)_/¯
 Dillon Baldwin
+Kapri Sanders
 Suyash Sreekumar ^_^
 Brielle Choquer ¯\_(ツ)_/¯
 Raymond Sales 🍜
@@ -323,6 +324,7 @@ Joshua Wallace 🐄
 Adam Andreatta
 Nicole McCune =^..^=
 Michael Rigali ★ ☆ ★ ☆ ★
+Navneet Dhir 
 Thomas Tran ψ(｀∇´)ψ
 Sophia Bouck :3
 Navneet Dhir 
