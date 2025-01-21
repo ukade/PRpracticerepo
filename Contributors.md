@@ -14,6 +14,7 @@ Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
 Tallent Hagan (•_•) ( •_•)>⌐■-■ (⌐■_■)
 Joshua Kim
+David Kazarian
 Christopher Pavlovich :D
 Derek Westjohn 🎸
 Joe Storto 🍕
