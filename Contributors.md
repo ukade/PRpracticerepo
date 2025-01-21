@@ -168,6 +168,7 @@ Haris Hambasic Харис Хамбашић
 Sahil Gaikwad /ᐠ｡‸｡ᐟ
 Daniel Helm ¯\_(ツ)_/¯
 Dillon Baldwin
+Kapri Sanders
 Suyash Sreekumar ^_^
 Brielle Choquer ¯\_(ツ)_/¯
 Raymond Sales 🍜
