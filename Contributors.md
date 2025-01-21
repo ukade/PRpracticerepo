@@ -1,4 +1,4 @@
-Melody Acevedo
+﻿Melody Acevedo
 Sirus Salari 🏂
 Lena Aljehane 🌏
 Dylan Majewski 🧿
@@ -17,6 +17,7 @@ Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
 Tallent Hagan (•*•) ( •*•)>⌐■-■ (⌐■_■)
 Joshua Kim
+Carl Ikai <°)))><
 William O'Brien
 David Kazarian
 Christopher Pavlovich :D
@@ -27,7 +28,7 @@ Jacob Springer :)
 Karan Patel :0
 Aniket Poojari ʕ•|•ʔ
 Steven Wallace ¯\_(ツ)*/¯
-Daniel Grossberg 🦕
+Daniel Grossberg ??
 Steven Schaerer ><>
 Shunan Zhu
 Trevor Phillips °º¤ø,¸¸,ø¤º°`°º¤ø,¸,ø¤°º¤ø,¸¸,ø¤º°`°º¤ø,¸
