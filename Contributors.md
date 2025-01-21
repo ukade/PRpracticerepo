@@ -1,3 +1,5 @@
+<!-- @format -->
+
 Melody Acevedo
 Sirus Salari 🏂
 Lena Aljehane 🌏
@@ -10,9 +12,10 @@ Hayden Burgess ⊙▂⊙
 Hannah Wheeler
 Hanjun Kim (ʕo.o?)
 Hann Scott (•̀ᴗ•́)و
+Timmy Le ✩
 Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
-Tallent Hagan (•_•) ( •_•)>⌐■-■ (⌐■_■)
+Tallent Hagan (•*•) ( •*•)>⌐■-■ (⌐■_■)
 Joshua Kim
 David Kazarian
 Christopher Pavlovich :D
@@ -292,7 +295,7 @@ Zachary Hogan
 Vaughn Blandy
 Lucas Stephens
 Andrew Ketola
-Cody Ray   ><(((º>
+Cody Ray ><(((º>
 Brandon Cowan [>^.^]>#
 Joshua Kim XD
 Byron Hedden
@@ -307,4 +310,4 @@ Joshua Wallace 🐄
 Adam Andreatta
 Nicole McCune =^..^=
 Michael Rigali ★ ☆ ★ ☆ ★
-Navneet Dhir 
+Navneet Dhir
