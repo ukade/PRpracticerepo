@@ -7,12 +7,14 @@ Teresita Nader ^-^
 Devin Fahnestock 🫠
 Dominic Fantauzzo 6*6
 Hayden Burgess ⊙▂⊙
+Hannah Wheeler
 Hanjun Kim (ʕo.o?)
 Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
 Tallent Hagan (•_•) ( •_•)>⌐■-■ (⌐■_■)
 Joshua Kim
+David Kazarian
 Christopher Pavlovich :D
 Derek Westjohn 🎸
 Joe Storto 🍕
@@ -29,8 +31,10 @@ Liam Pestrella :)
 Jawad Abdullah ( ˘︹˘ )
 Colin Cheng ^_^
 Anthony Javiya 🦧
+Alex Clark 🪻️
 Matthew O'Malley-Nichols <_<
 Daniel Fontenot ┐(‘～`;)┌
+Ethan David Lee 🦫
 Lydia Fares :D
 Kippen Lee (╯°□°）╯︵ ┻━┻
 Michael Hunter 🍕
@@ -266,6 +270,7 @@ Tan Ton =))))
 Andrew Boland Ƹ̵̡Ӝ̵̨̄Ʒ
 Josh Pulattie
 Hannah Kim˚.🎀༘⋆
+Ibrahim Velasquez 🏂❄️
 Brandi Cook :3
 Laci Monsrud ♡
 Shubhank Gyawali (:
@@ -293,5 +298,8 @@ Ditrung Duong
 Astrid Bowden 🍓
 Annalee X. Johnson 🌚
 Po-Hui Lin
+Jason Szeto 🔥
 Joshua Wallace 🐄
 Nicole McCune =^..^=
+Michael Rigali ★ ☆ ★ ☆ ★
+Navneet Dhir 
