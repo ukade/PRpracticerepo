@@ -11,7 +11,7 @@ Hanjun Kim (ʕo.o?)
 Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
-Tallent Hagan (•_•) ( •_•)>⌐■-■ (⌐■_■)
+Tallent Hagan (•*•) ( •*•)>⌐■-■ (⌐■_■)
 Joshua Kim
 Christopher Pavlovich :D
 Derek Westjohn 🎸
@@ -27,9 +27,9 @@ Shunan Zhu
 Trevor Phillips °º¤ø,¸¸,ø¤º°`°º¤ø,¸,ø¤°º¤ø,¸¸,ø¤º°`°º¤ø,¸
 Liam Pestrella :)
 Jawad Abdullah ( ˘︹˘ )
-Colin Cheng ^_^
+Colin Cheng ^*^
 Anthony Javiya 🦧
-Matthew O'Malley-Nichols <_<
+Matthew O'Malley-Nichols <*<
 Daniel Fontenot ┐(‘～`;)┌
 Ethan David Lee 🦫
 Lydia Fares :D
@@ -233,6 +233,7 @@ Alex Higham ((̲̅ ̲̅(̲̅C̲̅r̲̅a̲̅y̲̅o̲̅n̲̅( ̲̅((>
 Hannah Barfield ʕ̡̢̡ʘ̅͟͜͡ʘ̲̅ʔ̢̡̢
 Bogdan Gevko (===||:::::::::::::::>
 Michael Lin
+Alec Moschetti ╰( ͡° ͜ʖ ͡° )つ──☆*:・ﾟ
 John Paul Feliciano
 Brant Cass 🦖
 Emmet Miller
@@ -297,4 +298,4 @@ Po-Hui Lin
 Jason Szeto 🔥
 Joshua Wallace 🐄
 Michael Rigali ★ ☆ ★ ☆ ★
-Navneet Dhir 
+Navneet Dhir
