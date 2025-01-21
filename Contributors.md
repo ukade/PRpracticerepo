@@ -7,12 +7,17 @@ Teresita Nader ^-^
 Devin Fahnestock 🫠
 Dominic Fantauzzo 6*6
 Hayden Burgess ⊙▂⊙
+Hannah Wheeler
 Hanjun Kim (ʕo.o?)
+Luc Yang ฅ՞•ﻌ•՞ฅ
 Hann Scott (•̀ᴗ•́)و
+Timmy Le ✩
 Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
-Tallent Hagan (•_•) ( •_•)>⌐■-■ (⌐■_■)
+Tallent Hagan (•*•) ( •*•)>⌐■-■ (⌐■_■)
 Joshua Kim
+William O'Brien
+David Kazarian
 Christopher Pavlovich :D
 Derek Westjohn 🎸
 Joe Storto 🍕
@@ -29,6 +34,7 @@ Liam Pestrella :)
 Jawad Abdullah ( ˘︹˘ )
 Colin Cheng ^_^
 Anthony Javiya 🦧
+Alex Clark 🪻️
 Matthew O'Malley-Nichols <_<
 Daniel Fontenot ┐(‘～`;)┌
 Ethan David Lee 🦫
@@ -42,6 +48,7 @@ Karnbir Randhawa
 Jamie Parker ಠ_ಠ
 Bryan Caples ᕕ(⌐■_■)ᕗ ♪♬
 Thuy Duyen Doan 🤠
+Nish Sitapara :D
 Andrew Bottom (-_-)
 Monica Zhang
 Jared Norris 🤠
@@ -68,6 +75,7 @@ Kevin Hernández 🛸
 Alexander Simon XD
 Antony Thomas :o
 Kristin Towns XD :)
+Jackson Kelley
 Samuel Hoover 🔮
 Benjamin Singeltary 👻
 Guru Updesh Singh :p
@@ -154,6 +162,7 @@ Aubrey Floyd 🤷🏻‍♀️
 Kavya Kolavasi ❤️
 Joonhyung Kang
 Hana Alizai 😊
+Brandon Nelson 	(ﾉ◕ヮ◕)ﾉ*:・ﾟ✧
 Tyler Harwood 👀
 Atlee Hlainka 🌎
 Lauren Campbell :D
@@ -192,6 +201,7 @@ John Tran 🐈‍⬛
 Brittany Healey (≧◡≦)
 Alejandro Hernandez
 James Bray 🤗
+Christopher Blum 🌮 🌮
 Matthew Stagg ¯\_(ツ)\_/¯
 Samuel Davidson
 Lawrence Kim
@@ -243,6 +253,7 @@ Kenny Igbechi 🦖 🦖
 Derek Knowlton ✌⊂(✰‿✰)つ ✌
 Noah Strong :)
 Yeonji Lee 🫠
+Elena Parapounsky ꒰ᐢ. .ᐢ꒱
 Ryan Harrison
 Jennifer Trainor ^o^
 Alexandra Rogers =^..^=
@@ -250,6 +261,7 @@ Christopher McLean 🧐
 Alan Massey 🏄
 Nick Laustrup (ง'̀-'́)ง
 Saurav Shrestha
+William Franklin 🦇
 Ethan Ahuja🙂‍↕️
 Chester Corpuz .:\_:
 Rimsha Ejaz
@@ -267,6 +279,7 @@ Tan Ton =))))
 Andrew Boland Ƹ̵̡Ӝ̵̨̄Ʒ
 Josh Pulattie
 Hannah Kim˚.🎀༘⋆
+Ibrahim Velasquez 🏂❄️
 Brandi Cook :3
 Laci Monsrud ♡
 Shubhank Gyawali (:
@@ -284,7 +297,7 @@ Zachary Hogan
 Vaughn Blandy
 Lucas Stephens
 Andrew Ketola
-Cody Ray   ><(((º>
+Cody Ray ><(((º>
 Brandon Cowan [>^.^]>#
 Joshua Kim XD
 Byron Hedden
@@ -292,10 +305,19 @@ Kevin Huynh
 Maddi Spawn :)
 Ditrung Duong
 Astrid Bowden 🍓
-Annalee X. Johnson 🌚
+AnnaleeX. Johnson 🌚
 Po-Hui Lin
+Kristan Koeplin
 Jason Szeto 🔥
 Joshua Wallace 🐄
+Adam Andreatta
+Nicole McCune =^..^=
 Michael Rigali ★ ☆ ★ ☆ ★
+Sophia Bouck :3
 Navneet Dhir 
 Ethan Wentworth 🫡
+Matthew Dyer (b^_^)b
+Tieg Zaharia ヽ༼ ͡☉ ͜ʖ ͡☉ ༽ﾉ
+Casey Heath
+Matthew Tassone
+Navneet Dhir
