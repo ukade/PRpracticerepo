@@ -53,6 +53,7 @@ Thuy Duyen Doan 🤠
 Nish Sitapara :D
 Andrew Bottom (-_-)
 Monica Zhang
+Lindsay Bestvater
 Jared Norris 🤠
 Gabriel Mortensen
 Luiz De Miranda Leao
