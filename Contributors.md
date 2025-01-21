@@ -1,5 +1,3 @@
-<!-- @format -->
-
 Melody Acevedo
 Sirus Salari 🏂
 Lena Aljehane 🌏
@@ -17,6 +15,7 @@ Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
 Tallent Hagan (•*•) ( •*•)>⌐■-■ (⌐■_■)
 Joshua Kim
+William O'Brien
 David Kazarian
 Christopher Pavlovich :D
 Derek Westjohn 🎸
