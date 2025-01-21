@@ -2,6 +2,7 @@ Melody Acevedo
 Sirus Salari 🏂
 Lena Aljehane 🌏
 Dylan Majewski 🧿
+Veronika Kiss 🐈
 Audrie Nielsen ʕ っ•ᴥ•ʔ っ
 Teresita Nader ^-^
 Devin Fahnestock 🫠
