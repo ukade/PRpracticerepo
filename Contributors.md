@@ -9,6 +9,7 @@ Dominic Fantauzzo 6*6
 Hayden Burgess ⊙▂⊙
 Hannah Wheeler
 Hanjun Kim (ʕo.o?)
+Luc Yang ฅ՞•ﻌ•՞ฅ
 Hann Scott (•̀ᴗ•́)و
 Timmy Le ✩
 Janita Aamir ʕ •ᴥ•ʔ
