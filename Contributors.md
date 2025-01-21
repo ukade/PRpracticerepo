@@ -158,6 +158,7 @@ Tyler Harwood 👀
 Atlee Hlainka 🌎
 Lauren Campbell :D
 Jesse Chang 👀
+Jakob Poore 👒🍖🏴‍☠
 Walt Bringenberg :)
 Jaron Moore 😎
 Jose Meza
