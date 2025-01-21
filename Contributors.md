@@ -1,4 +1,5 @@
 Melody Acevedo
+Veronika Kiss
 Sirus Salari 🏂
 Lena Aljehane 🌏
 Dylan Majewski 🧿
